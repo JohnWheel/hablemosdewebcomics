@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Hablemos de Webcómics #2
+title: Hablemos de webcómics 2
 ---
 
 _**Aviso:** en este artículo se mencionan elementos no dirigidos a menores que pueden resultar de mal gusto con afán informativo. Leer bajo responsabilidad propia._
