@@ -1,5 +1,13 @@
+img {
+    width: 100%;
+}
+
 p {
     text-align: justify;
+}
+
+hr {
+    border-top: 3px solid #414141;
 }
 
 header {
@@ -23,9 +31,4 @@ body {
     padding-right: 40px;
     padding-bottom: 40px;
     margin-top: 20px;
-}
-
-hr {
-    border-top: 3px;
-    border-color: #414141;
 }
