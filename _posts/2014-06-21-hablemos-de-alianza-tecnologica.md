@@ -17,12 +17,12 @@ Ya que este análisis lo han pedido Ensis y un moderador de la comunidad y ya no
 
 Ahora que sabemos qué es Alianza Tecnológica vamos a desgranarlo. Lo primero en lo que uno se fija es en el dibujo, claro. No es bueno. Siempre he tenido la impresión de que el autor se fija más en los elementos superficiales. Cuando le dijeron que no sabía dibujar se centró en aprender trucos y técnicas de Photoshop para colorear en lugar de aprender métodos de dibujo. Luego para mejorar invirtió trabajo en añadir detalles y brillos y sombras sobre una base deficiente. Cuando lo miras ves esfuerzo desaprovechado. Las consecuencias son partes del cuerpo que parece que han intentado ser dibujadas lo mejor posible pero separadas, con lo que jamás encajan entre ellas y los cuerpos quedan retorcidos y poco naturales. En su obra más reciente se puede ver que los personajes están llenos de sombras de Miller pero que en los objetos rara vez hay sombras salvo casos límite, están puestas al tuntún, en las caras dibuja los dientes de forma individual pero la ropa es tan simple, tiesa y encaja de forma tan rara sobre los cuerpos que parece ropa de un muñeco de Playmobil:
 
-[http://fulgor.subcultura.es/tira/13](http://fulgor.subcultura.es/tira/13)
-[http://fulgor.subcultura.es/tira/14](http://fulgor.subcultura.es/tira/14)
-[http://fulgor.subcultura.es/tira/17](http://fulgor.subcultura.es/tira/17)
-[http://fulgor.subcultura.es/tira/18](http://fulgor.subcultura.es/tira/18)
-[http://fulgor.subcultura.es/tira/21](http://fulgor.subcultura.es/tira/21)
-[http://fulgor.subcultura.es/tira/23](http://fulgor.subcultura.es/tira/23)
+* [http://fulgor.subcultura.es/tira/13](http://fulgor.subcultura.es/tira/13)
+* [http://fulgor.subcultura.es/tira/14](http://fulgor.subcultura.es/tira/14)
+* [http://fulgor.subcultura.es/tira/17](http://fulgor.subcultura.es/tira/17)
+* [http://fulgor.subcultura.es/tira/18](http://fulgor.subcultura.es/tira/18)
+* [http://fulgor.subcultura.es/tira/21](http://fulgor.subcultura.es/tira/21)
+* [http://fulgor.subcultura.es/tira/23](http://fulgor.subcultura.es/tira/23)
 
 Pues Alianza Tecnológica es eso pero peor.
 
