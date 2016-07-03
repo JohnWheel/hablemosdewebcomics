@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Hablemos de webcómics 3
+title: Hablemos de webcómics #3
 ---
 
 Continúo la serie con un webcómic único. En él Jesucristo se cansa de poner la otra mejilla y como si de un superhéroe se tratara se pelea con los villanos mano a mano hasta llegar al diablo. Es duro. Es épico. Es [In the Name of the Gun](http://www.jesuschriststory.com).

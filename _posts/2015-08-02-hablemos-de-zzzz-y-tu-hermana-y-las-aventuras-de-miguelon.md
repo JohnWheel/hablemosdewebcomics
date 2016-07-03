@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Hablemos de zzzz, Y Tu Hermana~! y LAS AVENTURAS DE MIGUELÓN
+title: Hablemos de zzz, Y Tu Hermana~! y LAS AVENTURAS DE MIGUELÓN
 ---
 
 [zzzz](http://jhh.subcultura.es)

@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Hablemos de webcómics 5
+title: Hablemos de webcómics #5
 ---
 
 Regreso con un nuevo webcómic bajos mis manos. Un webcómic que creo es más o menos conocido que empezó como pura comedia pero al poco desembocó en una compleja historia de ciencia ficción, con un dibujo con clara herencia del manga y todo bien envuelto con sensualidad y un toque de perversión. Hoy regreso con [Collar 6](http://collar6.com).
