@@ -13,7 +13,7 @@ El marco de la historia es peculiar: el mundo se organiza de forma política y s
 
 Ya que este análisis lo han pedido Ensis y un moderador de la comunidad y ya no se puede leer la obra original, qué menos que ser exhaustivos.
 
-#El dibujo
+### El dibujo
 
 Ahora que sabemos qué es Alianza Tecnológica vamos a desgranarlo. Lo primero en lo que uno se fija es en el dibujo, claro. No es bueno. Siempre he tenido la impresión de que el autor se fija más en los elementos superficiales. Cuando le dijeron que no sabía dibujar se centró en aprender trucos y técnicas de Photoshop para colorear en lugar de aprender métodos de dibujo. Luego para mejorar invirtió trabajo en añadir detalles y brillos y sombras sobre una base deficiente. Cuando lo miras ves esfuerzo desaprovechado. Las consecuencias son partes del cuerpo que parece que han intentado ser dibujadas lo mejor posible pero separadas, con lo que jamás encajan entre ellas y los cuerpos quedan retorcidos y poco naturales. En su obra más reciente se puede ver que los personajes están llenos de sombras de Miller pero que en los objetos rara vez hay sombras salvo casos límite, están puestas al tuntún, en las caras dibuja los dientes de forma individual pero la ropa es tan simple, tiesa y encaja de forma tan rara sobre los cuerpos que parece ropa de un muñeco de Playmobil:
 
@@ -32,7 +32,7 @@ Extremidades que se doblan por donde quieren, que se mueven a donde les da la ga
 
 Y de todos modos, por malo que sea el dibujo, pienso que no es el problema más grave del cómic. Ya hemos hablado bastante de él, así que pasemos al guión.
 
-#La ciencia
+### La ciencia
 
 Debido al trasfondo científico de la premisa, el autor presumía de que se había documentado mucho durante meses para hacer bien la ciencia-ficción y que tuviera lógica y sentido. Veamos los resultados de dicho trabajo.
 
@@ -78,7 +78,7 @@ Esto es una manada de edificios pirenaicos comunes en su hábitat natural. Si no
 
 Estos son los frutos de meses de investigación para escribir una historia basándose en la ciencia y rendir homenaje y respeto a los prohombres que nos han traído a la época que vivimos. Y ni siquiera se trata de cosas complejas, casi todas o son de física de instituto o de sentido común. La parte de documentación me temo que se limita a los científicos en los que se inspira, pero la única información que recaba son sus nombres, que Tesla y Edison estaban enemistados y que a este último le gustaban las bombillas. Si no fuera porque los países se llaman El País de Inserte Apellido la verdad es que nunca veríamos hablar de ciencia ni científicos reales en el cómic. Si hasta se empeña en usar los teslas para medir corrientes eléctricas aunque sea una unidad para medir campos electromagnéticos. No entiendo por qué no se dejó de tonterías y se limitó a llamarles tecnomagos en plan videojuego de rol japonés y responder que lo hizo todo un mago.
 
-#Las frases
+### Las frases
 
 Otro punto que salta a la vista cuando empiezas a leer el cómic es la forma de hablar de los personajes. Hablan bastante raro, y lo hacen de forma variada. Por un lado están las frases extrañas y expresiones artificiales y mal estructuradas.
 
@@ -96,13 +96,13 @@ _“Era muy irregular ver a una persona ensangrentada cerca de mi casa.”_ En q
 
 Aunque sin duda lo que más recordará la gente son los ataques. Alianza Tecnológica es en espíritu un shonen de peleas. Tanto, que hasta tiene un protagonista glotón. Y por supuesto, gritan los ataques en alto. Independientemente de que me agrade o no el recurso, cuando gritan algo como _Ariete Eléctrico_ o _Puñetazo de los Tres Engranajes_ o _Sentencia Da Vinci_ es bastante aceptable. No te rompe. Sin embargo la mayoría de las veces exclaman _Impacto de Rodilla_, _Doble Lanzamiento_ y _Cuádruple Lanzamiento_ para tirarle dos y cuatro destornilladores respectivamente a alguien a la cabeza, _Boxeo Directo Máximo_, _Golpe Vengativo_, _Gancho del Furor_ o mi favorito _Puñalada Trapera_ antes de atacar a alguien por la espalda. Lo único que consigue con ello son escenas ridículas y una comedia involuntaria. No quiero ser cruel, pero cuando alguien grita _Canción de Cuna_ y responden “ay, que me duermo” me da la risa. Quizás Alianza Tecnológica era una gran parodia que nadie entendió. Es una posibilidad. Algunas decisiones serían más fáciles de entender así.
 
-#Las mujeres
+### Las mujeres
 
 Antes de pasar a lo que es en sí la trama quiero señalar un último aspecto, los papeles de las mujeres. Si las enumeramos tenemos a una policía novata que en cada viñeta pone una postura de guarra de revista porno diferente y habla como pidiendo que la pongan a comer pollas, a la protagonista en minifalda rosa a la que se le ven las bragas todo el rato, una oficial en minifalda que sólo está para no hacer nada mientras atacan su base, a la novia de un malo que se pasea en bragas y sujetador mientras enseña la colección de juguetes sexuales de su novio o la tipa a la que le soban que el culo. Igual luego esta hacía algo, pero como la historia se cortó su único papel es enfadarse. También está la madre anciana con la que tiene el detalle de no tratarla como a una fulana y una chica que sí se salva de la quema, pero si no os importa prefiero hablar de ella mientras analizo el argumento.
 
 En general las mujeres están para sacudir las tetitas, en muchas ocasiones están dibujadas calcando poses de películas porno, y encima el autor defiende que no es sexista porque son fuertes y se pegan entre ellas. Horrible todo. Al menos la protagonista es capaz de hablar  por sí misma, por no hacerlo mal del todo.
 
-#La historia
+### La historia
 
 Y ahora sí, hablemos de la historia del webcómic nominado a mejor guión de Subcultura en su día. Venga, que el final está cerca.
 
@@ -204,7 +204,7 @@ El primer duelo es entre James y Long Fei, un anciano oriental experto en la cie
 
 James decide que prefiere morir a romper su promesa, y cuando el hombre más sano y más atlético del mundo gracias a la ciencia médica de la acupuntura está a punto de aplastarle la cabeza y acabar con su vida, se libra porque al pobre rival le da porque sí un infarto al corazón y se muere de golpe. Casi no se nota que el autor se metió en un callejón sin salida él solo y no se le ocurría cómo salvar la papeleta. Y ahí acaba Alianza Tecnológica, con el Deus Ex Machina más rancio que pudo.
 
-#El cierre
+### El cierre
 
 Como decía al principio, no creo que el dibujo sea el mayor problema de Alianza Tecnológica. Porque da igual cómo esté dibujado, no hay por dónde cogerlo. Tampoco es el peor webcómic que hay ni el que he visto, pero cada fallo se apila sobre el anterior y el resultado es mayor que la suma de las partes. Es una serie de accidentes tan curiosos y tan numerosos que parece mentira que alguien pueda no dar ni una de esa manera.
 

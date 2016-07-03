@@ -17,6 +17,8 @@ En guión no mejora. La cosa empieza con anécdotas del trabajo en el parking de
 
 Sin embargo Elfangor y sus paridas es importante dentro de nuestra historia. Durante años cada vez que alguien decía que no se atrevía a hacer un cómic porque dibujaba fatal o no sabía hacer chistes la respuesta era “Si él puede, tú también”. Y es verdad, si Elfangor tenía las narices de liarse la manta y tirar palante con el webcómic que le hacía ilusión crear no hay razón para que otros no se atrevan también. Hoy en día la frase sería “Si Chica Solidaria puede, tú también”, pero ahora somos más de quejarnos de que no tiene derecho a que [Cano](http://subcultura.es/user/cano) le pagase un banner o una mierda así. En eso hemos ido a peor, fíjate.
 
+---
+
 **La mujer lobo**
 
 Otra obra de darkhan, el autor más solicitado por la gente cuando ofrecí hacer una reseña (y me endilgaron diez). Este va de que una chica en el monte se transforma en mujer-lobo por la luna llena, se cruza con un montañista, intenta merendárselo, a este se le pone dura yoquesé por qué y ella se lo chinga. Es gilipollas con ganas, pero he visto guiones peores de gente que vive de hacer estas cosas. Lo chungo es que en un cómic porno si bien a la gente le importa un bledo la literatura, no perdonan tanto el dibujo. Para empezar no sabe cómo es la boca de un cánido y la tiene al final del morro con una lengua fina y kilométrica que siempre está fuera, haciéndola más cercana a la mujer-oso hormiguero que a la mujer-lobo.
@@ -24,6 +26,8 @@ Otra obra de darkhan, el autor más solicitado por la gente cuando ofrecí hacer
 ![Imagen 2](https://i.imgur.com/BmCPB7S.png)
 
 También dibuja una vagina cuyos labios menores salen hacia fuera cual lengua de xenomorfo de Alien en busca del pene para morderlo, pero eso ya no puedo ponerlo aquí. Que no saber cómo es la cabeza de un lobo, pues hasta puede tener un pase, pero dibujar guarradas sin saber cómo es una vagina es de traca. Por otro lado, los cómics originales de Drawn Sex eran todavía peores en eso y la gente pagaba por la suscripción.
+
+---
 
 **Sonichu** [http://archive.sonichu.com/cwcipedia/index.php?title=Sonichu_Comic_Collection](http://archive.sonichu.com/cwcipedia/index.php?title=Sonichu_Comic_Collection)
 

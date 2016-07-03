@@ -5,10 +5,10 @@ title: Hablemos de webcómics otra vez
 
 Eso, hablemos de [Tyrant Comics](http://tyrantcomics.subcultura.es), que nunca lo hacemos. Jaja, no, es broma. Estaba pensando en repetir la experiencia de daros a elegir títulos de entre mi biblioteca personal de webcómics archivados para la posteridad, porque si no hablo yo de webcómics, ¿quién lo va a hacer? Ya conocéis mi línea editorial para criticar el arte secuencial y los avisos son casi los mismos que los de la vez anterior:
 
-**1)** Si pedís un webcómic que sea vuestro lo más seguro es que pase de vuestro pinche rollo.
-**2)** No hay un criterio unificado para decidir si guardo un webcómic o no. Unas veces es porque se trata de uno de mis favoritos, otros porque la persona que lo hace tiene fama de borrarlos, otros como Ctrl+Alt+Del por infames, otros por ser curiosidades históricas del mundillo, otros porque los encontré terminados y muchos porque simplemente me dio por ahí. Aquí podéis encontrar de todo.
-**3)** He retirado de la lista aquellos que ya fueron elegidos. No tengo intención de perseguir un título diciendo cada poco tiempo lo malo que me parece ni de volver a explicar que otro me gusta. Por otro lado, he añadido nuevas obras a la colección desde entonces.
-**4)** Son unos quinientos. Hala, que empiece El Hilo Aleatorio v2.0.
+1. Si pedís un webcómic que sea vuestro lo más seguro es que pase de vuestro pinche rollo.
+2. No hay un criterio unificado para decidir si guardo un webcómic o no. Unas veces es porque se trata de uno de mis favoritos, otros porque la persona que lo hace tiene fama de borrarlos, otros como Ctrl+Alt+Del por infames, otros por ser curiosidades históricas del mundillo, otros porque los encontré terminados y muchos porque simplemente me dio por ahí. Aquí podéis encontrar de todo.
+3. He retirado de la lista aquellos que ya fueron elegidos. No tengo intención de perseguir un título diciendo cada poco tiempo lo malo que me parece ni de volver a explicar que otro me gusta. Por otro lado, he añadido nuevas obras a la colección desde entonces.
+4. Son unos quinientos. Hala, que empiece El Hilo Aleatorio v2.0.
 
 * 100 guerreros
 * ¡100% risa!

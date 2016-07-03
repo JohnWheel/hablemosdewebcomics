@@ -13,11 +13,15 @@ La historia de aventuras de fantasía medieval iba sobre (hasta donde recuerdo, 
 
 Como curiosidad, cambiando cuatro frases puedo reciclar esto para hablar sobre Namesake. Como consejo, leeros Dragon Half, que es un cómic de aventuras medievales genial y te ríes un montón. Jo, qué ganas de releerlo.
 
+---
+
 **Manuel, the wonder snail** [http://wondersnail.com/index.html](http://wondersnail.com/index.html)
 
 La historia de Manuel es una historia de sangre, de venganza, de furia, de ira imparable. Está hecha del fuego con el que se forjan las leyendas. Manuel, el guerrero bárbaro más temido, regresa de su justo descanso al encontrar a su mujer y su hijo muertos y parte en busca del asesino. Pero Manuel es un caracol y avanza como dos o tres píxels por tira. El cachondeo viene por todas las cosas que se le van ocurriendo al autor para interrumpir y alargar aún más el viaje de Manuel, que ya es largo de por sí. Curiosamente, se monta una narrativa secundaria en los pies de página de las tiras, que es donde van los chistes y a veces el autor se pone a contarte sus cosas en plan diario y te habla por ejemplo de un accidente de coche que tuvo y de cómo se va recuperando. Además, tras terminar el cómic, como le supo a poco lo maquetó todo en un libro y lo vende por Amazon.
 
 Hace falta tener mucho sentido del humor y además tenerlo especial para disfrutarlo, pero Manuel es la leche. Le acabas gritando ánimos mientras repta. Y aunque sólo nos haga gracia a cuatro, el autor compite con el de Dinosaur Comics a mayor cachondo de los webcómics.
+
+---
 
 **WEE War**
 

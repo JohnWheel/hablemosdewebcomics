@@ -35,5 +35,5 @@ Recordad, si quieres hacer un webcómic, hazlo. Da igual que seas el autor de Ye
 
 Eso ha sido todo. Hasta la próxima ocasión si la hay. Después de todo soy el único blog en español sobre webcómics.
 
-[Imagen 5](http://i.imgur.com/pYPqOCw.jpg)
+![Imagen 5](http://i.imgur.com/pYPqOCw.jpg)
 _Lo siento. Cuanto más la miro más me fascina. Yo... lo siento._

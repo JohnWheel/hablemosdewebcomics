@@ -25,6 +25,8 @@ Y el dibujo, oh, el dibujo. Me declaro fan del estilo caricaturesco colorido per
 
 En resumen, el guión alterna comedia y drama con mucha habilidad pasando el cómic de una experiencia divertida a una memorable y el dibujo es bueno a la par que efectivo acompañando la atmósfera de los personajes e historias. Pues al final sí era buena señal que ganase el concurso.
 
+---
+
 [**RPG World**](http://tvtropes.org/pmwiki/pmwiki.php/Webcomic/RPGWorld) _(la web original desapareció, el enlace incluye links a copias del archivo)_
 
 La premisa no tiene mucho misterio, consiste en una parodia cariñosa de los jRPG en general y de Final Fantasy VII en particular en forma de webcómic primerizo de un universitario. No se salta ni un cliché, sea el héroe atontado con pelos de punta, el ladrón con sentimientos, el bicho mono haciendo de mascota, el emo que parece malo pero al final no, la tía medio desnuda o el personaje de relleno que repite una y otra vez la misma frase cuando hablas con él.
@@ -40,6 +42,8 @@ A nivel de curiosidad, el autor tras terminar sus estudios y dejar los cómics a
 RPG World siempre seguirá vivo en forma de recuerdos de sus diversos fans o en forma de los momentos de morriña que se permite Ian. Aunque nunca sepamos cómo acaba.
 
 Sigh. Times are though.
+
+---
 
 [**Hello Cthulhu**](http://www.hello-cthulhu.com/)
 

@@ -13,6 +13,8 @@ La parte curiosa de todo esto era la gente mosqueada porque a la gente pudiera h
 
 Así tenemos cientos de autores haciendo diario-cómics en los que dibujan decenas y decenas de tiras quejándose de que hay otros dibujantes que dibujan mejor que ellos. Me las he visto todas. Todas. Han acabado con todas las formas que hay en el universo de decir en un cómic que otra persona dibuja mejor y le tienes envidia. No existe forma de hacer una más sin repetirse. Pero jamás veré una de un autor haciendo un cómic en el que dice de forma más o menos humorística que otra persona narra y escribe mejor que él. Ni una. Os odio tanto. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio. Os odio.
 
+---
+
 [**un pretesto de cómic**](http://ucdp.subcultura.es/)
 
 Este es el webcómic del que más me va a costar hablar. Creo que lo único que puedo hacer es describir sus páginas.
@@ -29,7 +31,7 @@ Es difícil saber si el cómic es así queriendo o es accidental. Por un lado, n
 
 La descripción del webcómic nos aclara que son pruebas para aprender a usar el ordenador para labores artísticas. Llegados a este punto podría coger un folio en el que han escrito cien veces "El veloz murciélago hindú comía feliz cardillo y kiwi." para practicar mecanografía y criticar la pobre construcción narrativa que tiene. Pero estaría ignorando qué es en primer lugar.
 
-------------------------------------------------
+---
 
 **Teletransporte** (el webcómic original fue borrado, [podéis bajar una copia aquí](http://www.adrive.com/public/N8auQD/Teletransporte.zip))
 

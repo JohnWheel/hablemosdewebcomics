@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Hablemos de Caleórn, Los Inimaginables héroes de Subculutra y Bob and George
+title: Hablemos de Caleórn, Los Inimaginables héroes de Subcultura y Bob and George
 ---
 
 Este artículo es una entrega especial de tres títulos seleccionados por [Feadraug](http://subcultura.es/user/feadraug) bastante después de que dejase de aceptar sugerencias. Pero como eligió tres obras de las que es interesante hablar, sé positivamente que nadie más las elegiría y tengo cierta deuda con él por vacilarle con ciertos hobbies, decidí incluírlos en la lista igualmente.

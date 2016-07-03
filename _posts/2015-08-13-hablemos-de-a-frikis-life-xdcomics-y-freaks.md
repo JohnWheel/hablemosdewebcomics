@@ -21,6 +21,8 @@ Esta es una de las últimas tiras de AFL 3:
 
 Durante diez años lo que ha cambiado es que dejan de salir los colegas del autor como personajes y que dibuja algo mejor las páginas. Al menos si te gustan los chistes tal como son, pues sabes que te va a gustar siempre el cómic. Si no, pues no. No sé qué más decir, me pasa siempre cuando las cosas no son ni tan malas ni tan buenas. De Animal Man o Mad Love me puedo tirar un rato hablando de por qué son brillantes y ya visteis la crónica que me salió con Alianza Tecnológica. Pero cuando están ahí en el medio, pues nada, no sé cómo explicar que no destacan. Tendré que practicar y ensayar con eso.
 
+---
+
 [**XDComics**](http://www.xdcomics.net/2006/03/1-sinceridad-ante-todo/)
 
 XDComics es uno de los webcómics en español más añejos que nos podemos encontrar y prácticamente un clásico de la escena. Aunque a simple vista no aparenta los años que tiene porque la web se reconvirtió en la foto de un gato. Por suerte el enlace que os he dejado lleva a la primera tira de la dirección oculta del webcómic para que podáis leerlo.
@@ -54,6 +56,8 @@ Claro que no siempre cabe el guión en 140 caracteres, como esta amenaza de muer
 Poco a poco te vas dando cuenta de qué ha cambiado en el webcómic y por qué no funciona como antes. Y es que en la etapa clásica el principio y el final de los chistes no eran para morirse, pero al último tramo de páginas le falta la parte del medio, las charlas y estupideces que decían entre la presentación y el punchline y que hacían gracioso el cómic. Resulta que esto era XDC si le quitabas los rellenos. Algunas tiras de la época "nueva" siguen siendo graciosas, pero no diría que compensan.
 
 ¿La página final que da broche (por tercera vez) a la obra? Una página de Monroe quejándose de que un blog no tan conocido que no le importa a nadie de una tía que se hace fotos del escote lo leen demasiadas personas y los tíos son demasiado educados en los comentarios. Una vez llegados hasta aquí tengo que decir que no me disgusta que XDC se fuera, sólo la forma en la que se fue. Por mi parte, los lectores del futuro que todavía no hayan conocido XDC pueden leerlo pero pueden sentirse libres de dejarlo tras la página 207.
+
+---
 
 [**Freaks**](http://bloj.net/aitor/freaks.php)
 

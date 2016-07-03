@@ -30,6 +30,8 @@ Si un webcómic actualiza, gusta y tiene un público que lo certifique, recibe v
 
 Siendo justos, también es cierto que muchos webcómics mejorarían si no tuvieran páginas.
 
+---
+
 [Y Tu Hermana~!](http://ytuhermana.subcultura.es)
 
 Para comentar esta obra primero conozcamos los detalles técnicos de la descripción. Este webcómic es un doujinshi, por lo que tiene las páginas publicadas del revés para ser como un manga. A pesar de que es una web y no se mueven folios. También es un parody, así que saldrá gente con acento andaluz. Para terminar, imita la broma de un vídeo latino colgado en Youtube. A lo que nos ha llevado la globalización.
@@ -42,9 +44,11 @@ En la segunda página sale Castiel de la serie Corazón de Melón, tal y como no
 
 En la tercera página, como nos vuelve a indicar un cartel, sale Inuyasha de la serie Inuyasha, que también la he visto y tampoco soy fan, así que nada, esto no es para mí. Inuyasha dice que hace mucho calor y Alucard apuntilla que está caliente igual que su hermana. Bueno, en realidad no dice eso, sólo dice "Y tu hermana" igual que el resto de veces porque no tiene muy claro el concepto de la gramática, pero yo le arreglo las frases para que esto se entienda. Y los nazis no salen. Empiezo a creer que no van a salir nazis. En el texto secreto reglamentario la autora nos advierte de que no robemos estos doujinshis o pagaremos el precio. A pesar de todo, yo lo guardé en el disco duro. Soy un rebelde. Thug Life.
 
-En la cuarta página, de nuevo con la inestimable ayuda del cartel de "Erase una vez el hombre", salen dos personajes de Hetalia y uno comenta que le fue muy bien en el examen de mod?|ajo y Alucard aparece en medio para soltar "igual que tu [hermana borrado] herman..". Mira, me rindo, ya no sé qué clase de doble sentido intenta hacer aquí. Le parten la cara y el doujinshi parody se acaba de una vez por todas. El comentario extra escrito entre viñetas nos repite que estamos advertidos y aclara que los personajes que aparecen pertenecen a sus respectiv y no se lee más porque en vez de escanear las páginas les hizo fotos y en esta enfocó mal y las palabras se salen del encuadre. Como curiosidad el que le parte la cara es la personificación antropomórfica de Alemania, así que ahí estaban los nazis. Pero al final no sale nadie con acento andaluz. Qué decepción.
+En la cuarta página, de nuevo con la inestimable ayuda del cartel de "Erase una vez el hombre", salen dos personajes de Hetalia y uno comenta que le fue muy bien en el examen de mod?\|ajo y Alucard aparece en medio para soltar "igual que tu [hermana borrado] herman..". Mira, me rindo, ya no sé qué clase de doble sentido intenta hacer aquí. Le parten la cara y el doujinshi parody se acaba de una vez por todas. El comentario extra escrito entre viñetas nos repite que estamos advertidos y aclara que los personajes que aparecen pertenecen a sus respectiv y no se lee más porque en vez de escanear las páginas les hizo fotos y en esta enfocó mal y las palabras se salen del encuadre. Como curiosidad el que le parte la cara es la personificación antropomórfica de Alemania, así que ahí estaban los nazis. Pero al final no sale nadie con acento andaluz. Qué decepción.
 
 Del webcómic ya sólo nos quedan los créditos finales en los que nombra los autores de cada personajes y aparece otra vez la OC. No, espera. Esta vez es el avatar de la autora, es que las confundo.
+
+---
 
 [LAS AVENTURAS DE MIGUELÓN](http://www.antena3.com/elestiron/aventuras-miguelon/)
 
