@@ -1,6 +1,5 @@
 ﻿---
 layout: default
-title: Hablemos
 ---
 
 Una vez más la lista de webcómics. He hablado de todos los que vosotros seleccionasteis y, una vez más, quiero elegir yo un título para terminar la serie. Esta vez será, [La boda del Rey Hielo](http://labodadelreyhielo.subcultura.es), un pequeño fan-cómic de nada más que cinco páginas sobre Hora de Aventuras (va, esta vez por vosotros usaré la traducción española). Quizás sea muy breve, pero está hecho con mucha ilusión.
