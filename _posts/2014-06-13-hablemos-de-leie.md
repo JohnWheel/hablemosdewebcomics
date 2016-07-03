@@ -6,6 +6,7 @@ title: Hablemos de Leie
 ¿Qué decir de Leie? Que es uno de los referentes de los inicios del webcómic en español, que es considerado imprescindible por quienes lo han leído y que se trata [del primer caso documentado de la coña de los tres codos](http://www.eledos.es/?L=comic&serie=leie&comic=200).
 
 ![El nacimiento de una leyenda](http://i.imgur.com/iWf4WOq.jpg)
+
 _El nacimiento de una leyenda_
 
 Lo primero a mencionar es que Arroyo, su autor, nunca ganará un premio como pintor. Además empieza con el autor dibujando un personaje casi igual a él que vive con gente rara, empieza diciendo que va a empezar un webcómic y se auto-inserta en alguna ocasión.

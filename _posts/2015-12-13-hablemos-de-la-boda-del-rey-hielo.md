@@ -1,4 +1,3 @@
-﻿
 ---
 layout: default
 title: Hablemos de La boda del Rey Hielo
@@ -11,21 +10,25 @@ El Rey Hielo y la Reina Hielo (que es el Rey Hielo pero en chica en un par de ep
 El resto del reparto se sorprende al recibir las noticias del agridulce emparejamiento. Mi viñeta favorita de esta escena es la reacción de Jake, que no sé qué tiene pero no puedo dejar de mirarla.
 
 ![Imagen 1](http://i.imgur.com/pYPqOCw.jpg)
+
 _No puedo._
 
 Finn se encarga de entregarle la invitación de la boda a la Princesa Chicle, pero esta la rechaza entre lágrimas. El día de la boda toda la panda se reúne en la iglesia para felicitar al Rey Hielo y celebrar la unión. Todos salvo Chicle, que no acude.
 
 ![Imagen 2](http://i.imgur.com/pYPqOCw.jpg)
+
 _Maldita sea, Jake._
 
 Comienza la ceremonia y cuando están a puntito de ser declarados marido y mujer... ¡la Princesa Chicle irrumpe gritando ¡Noooooooo!!
 
 ![Imagen 3](http://i.imgur.com/pYPqOCw.jpg)
+
 _Jake no sale, pero es que me supera._
 
 Cuando todos tienen el corazón en un puño y se temen lo peor, Chicle se disculpa diciendo que se refiere a que no empiecen sin ella. La ceremonia acaba y todos son felices. Hasta que cuatro meses después Hielo y Hielo... Ehr. Perdón, decía, hasta que Hielo y Hielo se divorcian porque Hiel... sigh, porque **_el Rey Hielo_** no puede superar su cariño y obsesión por la Princesa Chicle a pesar de que nunca podrán estar juntos. Chicle confiesa que después de todo se divierte mucho cuando el Rey Hielo la secuestra y deciden jugar un poco juntos montando otro rapto con Finn y Jake persiguiéndoles detrás para rescatarla. Y así, con todos corriendo al horizonte acaba la pequeña historia.  Quizás no tenga mucha enjundia, pero hay que reconocerle que sabe cuándo acabar y no se alarga gratuitamente.
 
 ![Imagen 4](http://i.imgur.com/pYPqOCw.jpg)
+
 _Me muero._
 
 Respecto a la parte artística, la cosa cojea un poco más. Está dibujado en un cuaderno cuadriculado, entintado con bolígrafo sin borrar el lápiz, coloreado con rotuladores y escaneado de tal forma que se ven las anillas y lo que creo que es uno de los cartones del cuaderno. Incluso tiene manchas de tinta de arrastrar la mano por el papel que tapan las viñetas. Los dibujos en sí no son precisamente perfectos pero son muy reconocibles y se esmera en darles expresividad y que respondan con todo el cuerpo. El cómic entero huele a instituto, a adolescencia inocente. Huele a nostalgia, huele a ilusión.
@@ -37,4 +40,5 @@ Recordad, si quieres hacer un webcómic, hazlo. Da igual que seas el autor de Ye
 Eso ha sido todo. Hasta la próxima ocasión si la hay. Después de todo soy el único blog en español sobre webcómics.
 
 ![Imagen 5](http://i.imgur.com/pYPqOCw.jpg)
+
 _Lo siento. Cuanto más la miro más me fascina. Yo... lo siento._
