@@ -3,7 +3,7 @@ layout: default
 title: Hablemos de un webcómic
 ---
 
-Eso, hablemos un poco más de [tyrantcomics](http://tyrantcomics.subcultura.es/). Jaja, no, es broma. Estaba pensando en la lista de webcómics que me bajo al disco duro porque a menudo desaparecen y en efecto unos cuantos de ellos dejaron de existir y nadie los verá. Así que me he pensado que podéis elegir uno y lo comento un poco. Pero como muchas veces no me entero de que se borran tengo anotados cuatro mal contados, por lo que mejor os dejo la lista entera y hablo del que decidáis. Os doy tres avisos:
+Eso, hablemos un poco más de [Tyrant Comics](http://tyrantcomics.subcultura.es/). Jaja, no, es broma. Estaba pensando en la lista de webcómics que me bajo al disco duro porque a menudo desaparecen y en efecto unos cuantos de ellos dejaron de existir y nadie los verá. Así que me he pensado que podéis elegir uno y lo comento un poco. Pero como muchas veces no me entero de que se borran tengo anotados cuatro mal contados, por lo que mejor os dejo la lista entera y hablo del que decidáis. Os doy tres avisos:
 
 **1)** Si pedís un webcómic que sea vuestro lo más seguro es que pase de vuestro pinche rollo.
 **2)** No hay un criterio unificado para decidir si guardo un webcómic o no. Unas veces es porque se trata de uno de mis favoritos, otros porque la persona que lo hace tiene fama de borrarlos, otros como Ctrl+Alt+Del por infames, otros por ser curiosidades históricas del mundillo, otros porque los encontré terminados y muchos porque simplemente me dio por ahí. Aquí podéis encontrar de todo.
