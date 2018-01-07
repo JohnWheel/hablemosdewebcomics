@@ -1,6 +1,6 @@
 ﻿---
 layout: default
-title: Hablemos de Amdeni, Las Paridsa de la Guarida y Las crónicas de Matilda
+title: Hablemos de Amdeni, Las Paridas de la Guarida y Las crónicas de Matilda
 ---
 
 **Amdeni** [https://mega.nz/#!TUJDWZ6T!aEZ9z1Oqv7Cu4bJSkgOcG7NxuxYB6dYMduFIVmcfuvM](https://mega.nz/#!TUJDWZ6T!aEZ9z1Oqv7Cu4bJSkgOcG7NxuxYB6dYMduFIVmcfuvM)
