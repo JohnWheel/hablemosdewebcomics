@@ -1,6 +1,6 @@
 ﻿---
 layout: default
-title: Hablemos de Dioses y otras tonterías, DISTOPY: Jenny y Don't cry for me, I'm already dead
+title: Hablemos de Dioses y otras tonterías, DISTOPY Jenny y Don't cry for me, I'm already dead
 ---
 
 Aquí vuelvo con una ronda mucho más interesante. Son tres títulos variaditos y cada uno interesante por sus propias razones, así que creo que a quien más a quien menos, le interesará al menos una de las críticas. Amos allá.
