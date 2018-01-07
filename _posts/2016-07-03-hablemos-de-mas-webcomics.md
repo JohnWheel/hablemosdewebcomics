@@ -1,0 +1,618 @@
+---
+layout: default
+title: Hablemos de más webcómics
+---
+
+Ha llegado otra vez ese momento del año en el que hablo de webcómics. Pero como ya ha pasado mucho tiempo desde la primera entrada voy a explicar todo de cero para los nuevos. Hará cuatro años escribí unos comentarios breves sobre una serie de webcómics a los que llamé **Hablemos de webcómics**. Un par de años después decidí resucitar el título ofreciendo una lista de todos los webcómics que tengo guardados en mi ordenador para la gente eligiera uno y hablara sobre él. Como cada uno dijo el título que le dio la gana, acabé hablando de todos los que pidieron. Al año siguiente repetí la experiencia y así quedó consolidado “Hablemos de”.
+
+Aquí ofrezco por tercera vez la lista de webcómics que tengo almacenados en mi biblioteca digital particular. Hace ya bastante años, aprendiendo de la experiencia y de Fadri, comencé a descargar webcómics manteniendo una copia personal. Y es que una de las desventajas de Internet y las webs es que pueden desaparecer para siempre sin previo aviso. No son pocos los webcómics que se han perdido, y muchos más se perderán, pero quiero conservar al menos una parte de esta cultura aunque sea pequeña.
+
+Ah, antes de que se me olvide, como ya hay bastantes artículos de “Hablemos de” y el archivo de los blogs de Subcultura no es particularmente cómodo, [he colgado aquí los artículos pasados](https://johnwheel.github.io/hablemosdewebcomics/) para que quien quiera pueda releerlos o para que quienes acaban de llegar al viaje conozcan mi estilo. Y ahora, las normas para participar y elegir los títulos para los próximos artículos:
+
+1.  Si pedís un webcómic que sea vuestro lo más seguro es que pase de vuestro pinche rollo.
+2.  No hay un criterio unificado para decidir si guardo un webcómic o no. Unas veces es porque se trata de uno de mis favoritos, otros porque la persona que lo hace tiene fama de borrarlos, otros como Ctrl+Alt+Del por infames, otros por ser curiosidades históricas del mundillo, otros porque los encontré terminados y muchos porque simplemente me dio por ahí. Aquí podéis encontrar de todo.
+3.  He retirado de la lista aquellos que ya fueron elegidos. No tengo intención de perseguir un título diciendo cada poco tiempo lo malo que me parece ni de volver a explicar que otro me gusta. Por otro lado, he añadido nuevas obras a la colección desde entonces.
+4.  Son unos seiscientos. Hala, que empiece El Hilo Aleatorio v2.0.
+
+-   100 guerreros
+-   ¡100% risa!
+-   1 millón de monos
+-   20pocos
+-   24
+-   2P START
+-   3, 2, 1… Bomblast!
+-   365 patatas
+-   365 subcultistas
+-   3 en 1
+-   A Bit Of Sand
+-   Achomán
+-   Adicto a la sangre
+-   Adventurers
+-   Aguas Termales Del Amor
+-   Agujeros no tan negros
+-   Aitor Eraña variado
+-   Akuma no Doragon
+-   Alerta de glóbulos rojos
+-   Algunas historias hentai
+-   Alien College
+-   Amaimono
+-   Amdeni
+-   Androginos
+-   A New Family Member
+-   An extra party
+-   Angelica and the samurai School
+-   Angel Moxie
+-   Anne Marie Erotika
+-   annoying orange new cronichles
+-   Anobu
+-   Antes Combat
+-   Anthronauts
+-   A Piece Of Pie
+-   Apellido Rothstein
+-   Apple Doom
+-   Aprendiendo a vivir
+-   Apricot Cookies
+-   A rare toy is kind and loyal
+-   Area66
+-   Arelia
+-   Art 88-46
+-   Ask Anthro Trixie
+-   Ask Flutterschiavo
+-   Ask Gabby Gums
+-   Ask Loli Peach
+-   Ask Overlord Trixie
+-   Astaroth y Bernadette
+-   Atfie
+-   ATMA
+-   Atomic Laundromat
+-   A tout le monde
+-   Average Woona Adventures
+-   Awesome Gamerz
+-   Awesome Tales
+-   Ax Brutaloo
+-   -   aya de la VIDA
+-   Bakaneko y sus bakadas
+-   Battlepug
+-   Be Evil
+-   Belladona
+-   Bertcomic
+-   Bienvenidos a Monster Park
+-   Bigger Than Cheeses
+-   Billy The Heretic
+-   Bio-Mechanic!
+-   Bollowarrior
+-   Books and cigarettes
+-   Bored Girl
+-   Brawl in the Family
+-   Brigada SOS
+-   Broken Wings
+-   Brother Complex
+-   Butthug
+-   By the Grace of the Witch
+-   CAD
+-   Camilo Sexto Sentido
+-   Canman Comic
+-   Cara de Nalga
+-   Caramel’s story
+-   Caribbean Blue
+-   Catastrofias informáticas
+-   Charliehorse
+-   Charon Tura
+-   Chorremon
+-   Cinco personas un equipo
+-   Clean Living
+-   Clickina
+-   Code: After Life
+-   Coffee Shop
+-   Collar 6
+-   Combate Toxemon
+-   Come ComeCocos
+-   Comiendonos el mundo
+-   Compañeros de piso
+-   Con dos tacones
+-   Cosas que dibujo
+-   Cosas que pasan \[clionheart\]
+-   Cosas Que Pasan \[Toni T Morro\]
+-   Cosmos and Waterfall
+-   Cosplay Girl
+-   Cote Gotica
+-   Covadonga
+-   Crazy Hill
+-   CREATURE OF THE NIGHTMARE
+-   Crissis Magika
+-   Cucumber Quest
+-   Culo erecto
+-   Cupido Gals club
+-   Cup O Love
+-   Cutre Hentai
+-   Daisy’s Fall Apart
+-   Dangerously Chloe
+-   dark misiones ninja
+-   Dash Academy
+-   Dawn Of Time
+-   DEAD STORIES
+-   Dead Town
+-   DEATH
+-   DeathPiglet
+-   ¿De quién es esta carta?
+-   Desde el encuentro al hecho, hay mucho trecho.
+-   Desierto Florido
+-   Desordename La Vida, Por Favor!
+-   Días cotidianos
+-   Diógenes
+-   Dioses y otras tonterías
+-   DISTOPY: Jenny
+-   Divas Issue
+-   Dodgy Tale
+-   Don’t cry for me, I’m already dead
+-   Dos Señores Grises
+-   DOTE
+-   Dragon force
+-   Dragon Mail
+-   Dragon’s Burn
+-   Druid-They poems
+-   Duck Symposium
+-   Dulce Truco
+-   Dynamisk Rasery
+-   Efecto Casimir
+-   Eh tio
+-   El busto del consejero
+-   El cantar de Sir Altramuz el Grande
+-   El Chozo de Samus
+-   El Clic 1
+-   el cómic ocioso de chobi y bobi
+-   El Cronarca
+-   El Equilatero
+-   El fabricante de sueños rotos
+-   El falso sonic
+-   El Goonish Shive
+-   El Hilo de la Magia Negra
+-   El Hombre de Aglomerado
+-   El jueves pasado
+-   El misterio de la escuela secreta
+-   El Nuevo Lucifer
+-   El Oráculo de Phira
+-   El significado del terror
+-   El universo de Marcos
+-   El Vagabundo del Sol
+-   El valle de Katia
+-   El Vosque
+-   En Crisis
+-   END LIMBUS
+-   ENSEÑAME
+-   Ensing Sue Must Die
+-   Enteclo
+-   Equestrian Girls
+-   Equipo Quimera
+-   Eramos pocos
+-   Erik El Zorro
+-   Erma
+-   Eskipers
+-   ESO ES ASÍ
+-   Eso que te gusta!
+-   Espeluzlantes historias de un par de fulanos
+-   Este Pantocrátor está muy vivo
+-   Estívaliz con V de Vitoria
+-   Es un mundo pequeño después de todo
+-   Eva 303
+-   Evangelia
+-   Evelyn
+-   Everlasting
+-   Eweroun
+-   Existencia
+-   Expediente Tox
+-   Fall Of Shades
+-   Fantasy(1,1)
+-   Femdom hell
+-   Flojeras viciosas!
+-   Floren
+-   Flores del norte, hongos del sur
+-   For everyone who loves to create
+-   Fred and Company
+-   Friends Exception
+-   Friendship is Dragons
+-   Friendship is Magic \[mauroz\]
+-   From A to Z
+-   Fruit-Tease
+-   Fulgor
+-   Fungi & Mykotas
+-   FURRY QUEST
+-   GAMER MADNESS
+-   Gamerworld
+-   Gamerzs
+-   GarrettheGarret stuff
+-   Georgia Replies
+-   GG-Guys
+-   Ghostcolour
+-   GHOST SCHOOL
+-   Gladiadores
+-   Gnossienne
+-   Goblins
+-   Go! Nana
+-   Go! Nana Comic Strip
+-   Go! Nana (Digital)
+-   Grasaman
+-   Gronk
+-   Guild Adventure
+-   Hailey Flower
+-   Half Demon
+-   Haremos una peli
+-   Hasta aquí hemos llegado pues
+-   Hay que joderse
+-   Hazme estremecer y después acabame
+-   He ++
+-   Hearts
+-   Hejibits
+-   Hentai de Zuleima
+-   Hentai Random
+-   Hermanas de sangre
+-   Heroes Freaks
+-   High School Girls
+-   hikkibeta
+-   Historias de Fantasía
+-   Hivemind
+-   Holes
+-   Hot Doc
+-   How Not To Run A Comic
+-   HS UTE-M
+-   Htv
+-   HUMOR MINIMALISTA DE SALÓN
+-   HyBRID
+-   HYPPHEUS
+-   I am the MAGICIAN TRIGGER
+-   IG
+-   iMew
+-   I’m gonna bury you in my sound
+-   I’M NOT
+-   Incultura General
+-   Infected Instinct
+-   Infernales Templationem
+-   In-Kultura
+-   Isla Marioneta
+-   Isomandias
+-   It Sucks To Be Weegie
+-   I was kidnapped by lesbian pirates from outer space
+-   JA!
+-   JC Superhero
+-   JEINSX the hegdehog
+-   JHall Bloop Bloop Relationship Comic
+-   JL8
+-   Juanitomen
+-   Jueves
+-   Just Chinchilling
+-   KANON el shinigami ambicioso
+-   Kanpekina parody
+-   Katteni x Punchline
+-   Kero
+-   Kicking Rad
+-   Kid Radd
+-   Kijutsu
+-   Kiwi Blitz
+-   Klotilde & Koimalin
+-   Ko Gothic Eroguro
+-   Krakow
+-   KUROI HAKU
+-   La Ciudad Sin Reglas
+-   La decima Crono Espada
+-   Lady Cat
+-   Lady Letus
+-   Lady of the Shard
+-   La guerra de los dioses
+-   La historia de Ana Zeppelin
+-   La hora de Hiro
+-   LA LELLENDA DE LA NINGA
+-   La Ley 34
+-   La Librería
+-   La Luna Solitaria
+-   La mascota del demonio es un conejo
+-   La nueva chica del barrio
+-   La pesadilla de Alice
+-   La pserie sin nombre
+-   Lapsus Estupidus
+-   Las Absurdas aventuras de la chica pescado
+-   Las aventuras de Gato Peligro
+-   Las aventuras de Kiara
+-   Las Aventuras de la Princesa Solar
+-   Las aventuras del cerdo pirata mutante
+-   Las Brujitas
+-   las chicas de sandybelldf vs zendo el amo
+-   las chicas de zendo
+-   Las Crónicas de Matilda
+-   Las desventuras del señor con cáncer de colon
+-   las dimensiones
+-   La Serenata de la Oscuridad
+-   Las Lindas
+-   Las Paridas de la Guarida
+-   las poderosas aventuras de Pau y Neoisi
+-   Las viejas tortas de Batman
+-   Las Viejas Tortas De Snake
+-   la teeele
+-   Laws For Kids
+-   Legion
+-   Lentejas de Frankfurt
+-   Le Pink Eden
+-   Les juro que es un manga
+-   Let’s Speak English
+-   LFG \[Thau\]
+-   Life Otany
+-   Llueve sobre mojado
+-   Lola, la poligonera que mola
+-   LOLeces
+-   Los Casos de Fate
+-   Los cuentos de Strawberry
+-   Los Guardianes
+-   Los Katazeo
+-   LOS LOCOS
+-   LOST DOG
+-   Love for you
+-   Love is Evil
+-   Love Luna
+-   Love Potion
+-   LSYX (LenSyn Yao Xing)
+-   Lucky Stalla
+-   Lunacienta
+-   Lyrabon
+-   Magia Negra
+-   Magick Chicks
+-   Magnolia Online
+-   Magnolia Online: Assassin
+-   Maki
+-   Mango
+-   María de los Ángeles
+-   Marilith
+-   mashup
+-   Más pallá del límite cuando x tiende a infinito
+-   Master of Warriors
+-   Master Sword
+-   Megnab
+-   Meido no kigen
+-   Memorias de una Chibi-pettanko
+-   Mercy A Undertale Fan Comic
+-   Mery X Max
+-   Metafóricamente Literal
+-   Metro 2035
+-   Midnight Rape Party
+-   Miku Remix
+-   Milord el vikingo
+-   Minority Monsters
+-   Mi Nuevo Empleo - las aventuras de Leo
+-   Mi nuevo ser
+-   Minutes to Midnight
+-   Mirada Atrás
+-   Mirror, mirror
+-   misiones ninja
+-   Mis problemas con la 100
+-   Mission Failed
+-   MLP 4koma
+-   MLP Life in Equestervaquia
+-   Monstruos
+-   Moody Mark Crusaders
+-   Moonstuck
+-   moowiloo woomiloo
+-   Morfogénesis
+-   Morning Glory
+-   Mother Ship Blues
+-   MOW
+-   MQY
+-   MSPA
+-   My boy
+-   My Little Pony Blancanieves
+-   My little pony Strange Friends are Magic
+-   My “Love” is an Internet Idol
+-   nacido el 666
+-   Nagare
+-   Nanogia
+-   Nan Search
+-   NATSUME
+-   Nefinita (one-shot)
+-   Nerf NOW
+-   Newlands
+-   Noche de otoño
+-   No hay príncipes
+-   No me dejes
+-   Nonoh
+-   Not Enough Rings
+-   NotSoDistant
+-   Nuevo Orden
+-   Nymphs
+-   Ocalus123
+-   Oído en Esparta
+-   Ojo Con Lo Que Publiques En Facebook
+-   OMG
+-   Order of the Stick
+-   Oseano
+-   Otaku dad
+-   Otaku H Stories
+-   OTRO COMIC MONSTRUOSO
+-   Out of the Farm
+-   Pacto Blanco
+-   Paint It Up
+-   Palientology
+-   Pandora’s Box
+-   PanelPlay
+-   Paprika
+-   Paqaru
+-   Paranoias inexistentes version comic
+-   Paridas de un Emo Bot
+-   parodias walfas
+-   Patín Princess
+-   Patt-sucesos
+-   Penny and Aggie
+-   Pepinator
+-   Perry Bible Fellowship
+-   Petgirls Stories
+-   Phasmatodea
+-   Phineas y el otro
+-   Pilotos
+-   Pitsa Girl
+-   Pizza Girl
+-   Planeta Absurdo
+-   Playing with Props
+-   Podría ser peor
+-   Pollito Wars
+-   Polvo de Hadas
+-   Poorcraft
+-   Potato Baby
+-   Powermom
+-   PowerPuff Girls Doujinshi
+-   presentacion de zendo el amo
+-   Pretty Seeker Gracielle
+-   Princess Chucktestia
+-   PSG Season 2
+-   Puños Ardientes
+-   Pupkin
+-   Puss in Skinny Jeans
+-   ¡Qué cómic monstruoso!
+-   Queer, personas diversas, cómics diversos
+-   Quidditch Comic
+-   Radio Repe
+-   Radishes
+-   Ramona La Dragona
+-   Raruto
+-   Recuerdos perdidos
+-   Redd
+-   Reinos Elementales
+-   Rickety Stitch and the Gelatinous Goo
+-   RIP
+-   ライバル (Rivales)
+-   Rizos Verdes
+-   rocky el perro atomico
+-   Roomies
+-   Rorschach in your face
+-   Roxy
+-   Ruby Quest
+-   Sabrina Online
+-   Sad Laugh
+-   Sakura Kasugano (Street Fighter fancomic)
+-   Sally que linda zombie
+-   Sangre
+-   Sasi
+-   Satoru y el Pincel Mágico
+-   Savage Alliance
+-   School Battle
+-   Scout VS HitGirl
+-   Screwless
+-   Seal Soul
+-   Secret Princess
+-   Semental para Dos
+-   Sendo el mago
+-   Sexgazer: Nerds vs Porristas
+-   Shades of A
+-   Shifty Look
+-   Shit Comic
+-   ShoAi
+-   Shockwave: Diario de una cosplayer
+-   Shugo Magical!
+-   Shut-in Vampire Princess
+-   Si fuera una Maid!!
+-   Silent Horror
+-   Simbiogenesis
+-   Sistema d13
+-   Sister Claire
+-   Skadi
+-   Skarp World
+-   Slasher
+-   Sleepless Domain
+-   So Cute
+-   solo es mi mente
+-   Sonata épica de Rowenstark
+-   Sonic the Hedgehog Battle for the life
+-   Soy una pervertida
+-   Soy una pervertida 2.0
+-   Space Race
+-   Spelling
+-   Spinnerette
+-   Spiritual fantasy
+-   Splash
+-   Sshhhh
+-   Star Ronin
+-   stickman world:El hombre de La cima
+-   Straight Line
+-   Strawberry, un elfo del siglo 21
+-   Strays
+-   Strong Female Protagonist
+-   Subculture Emblem
+-   Sui Caedere
+-   Supercrash
+-   SUPER EFFECTIVE
+-   Super Ligre Z
+-   Super Mahou
+-   surubio y sus cumpas
+-   SVE seguridad y vigilancia espacial
+-   sweet bro and hella jeff
+-   Ta bacan
+-   Take Over The World
+-   Taro
+-   Telenovela de las doce
+-   Temblando
+-   Ten Ponys
+-   The 3 little Princesses
+-   The Chronicles of Kia
+-   The Dreadful
+-   The Green Pile
+-   The Hero
+-   The legend of the cardo borriquero
+-   The Milkman
+-   The Monster Under the Bed
+-   The Rock Cocks
+-   The Royal Fantasy
+-   The Two-Foot Difference
+-   The unexpected Love Life of Dusk Shine
+-   The Well by the House on the Hill
+-   The Wing Safeguard
+-   Thingpart
+-   This is everything I know by Spike - A 24 hour comic about comics
+-   Tiara Lost
+-   Tira Ecol
+-   Tito Mantecas y la fiebre manteca
+-   Título Pendiente
+-   TMNT The Other Beginning
+-   Tomoyo42 Room
+-   Torillo Loquillo 1:la gran aventura
+-   Tornillos y tuercas
+-   Toxic Know use paint!
+-   Toxic-Mario
+-   Trato Demoníaco
+-   Trimalie
+-   Tsugi no Itte
+-   Tsukasa no manga
+-   Twilight Eclipse
+-   Two Guys and Guy
+-   Two sides of the same coin
+-   Una vez ligué
+-   Un caotico mundo
+-   Un comic sin titulo
+-   Unleashed
+-   uno
+-   Unruly
+-   Valkyria one shot
+-   Vaulderie
+-   VG Butts
+-   VGCats
+-   Virtual Shackles
+-   Visita al Sex shop
+-   Vixel y Poxel
+-   Waggtoons
+-   Warearth La Venganza de Gelion
+-   Was it a Dream?
+-   Watashi-Tachi
+-   Watashi wa yakuza no sensei to koiniochiru
+-   web-comic-humor
+-   Weesh
+-   White Alliance
+-   Why So Manfred
+-   Wingler: el equipo alado
+-   Wizard Adventure
+-   Wnse Life
+-   World Worst Webcomic \[A-Funny-Name\]
+-   Wormworld Saga
+-   Xavi el ligon
+-   YAARG!
+-   You Suck
+-   yox yox
+-   YURASIC PUAG
+-   zeet
+-   zendo el amo genero eichi y mas
+-   Zerocomic
+-   ZETZU
+
