@@ -7,7 +7,7 @@ Creo que ya toca hacer otra ronda hablando de cómics. Al igual que la vez anter
 
 ------------------------------------------------------------------------
 
-**Two Guys and Guy** [](http://www.twogag.com/)
+**Two Guys and Guy** [http://www.twogag.com/](http://www.twogag.com/)
 
 Two Guys and Guy es una tira cómica simple con formato de tres viñetas que sigue las andanzas de Wayne, Frank y una amiga sin nombre. Wayne es un pupas, Frank es un científico loco sin emociones, La Amiga (tm) es una cabrona con pintas y el autor evita deliberadamente hacer referencias a videojuegos, series o cosas de actualidad para mantener la frescura de las tiras. Y el sistema funciona. Hasta que deja de funcionar. No sabría decir el punto exacto en el que el cómic se marchita, pero llega un momento en el que tienes la sensación de haber leído ya una tira que en principio es nueva. Frank, que en principio tiene un potencial sin límite para generar nuevas situaciones, acaba reducido a dos tipos de gags: que ha matado a alguien fuera de cámara o que ha adquirido un objeto peligrosísimo pero lo trata como un objeto normal. Wayne liga con una chica pero está loca de atar. La Amiga (tm) se cabrea como una mona pero es que se lo pasa bien así. El propio dibujo acaba convirtiéndose también en un copypaste desmedido. Lo cuál es un problema doble, porque una de las particularidades del diseño de Frank es que carece de lenguaje corporal y está dibujado siempre en la misma postura. Cuando eso le ocurre al resto de personajes el efecto en el mejor de los casos se diluye. En el peor parece una parodia de sí mismo.
 
@@ -17,7 +17,7 @@ Dejó de actualizar en diciembre y es uno de esos casos en los que te das cuenta
 
 ------------------------------------------------------------------------
 
-**Hailey Flower** [](https://mega.nz/#!aVAWkDYJ!2ejcoo4YvL10EpgjjBcxAMVAvcyW8xdLhdpQnSoHekM)
+**Hailey Flower** [https://mega.nz/#!aVAWkDYJ!2ejcoo4YvL10EpgjjBcxAMVAvcyW8xdLhdpQnSoHekM](https://mega.nz/#!aVAWkDYJ!2ejcoo4YvL10EpgjjBcxAMVAvcyW8xdLhdpQnSoHekM)
 
 Hailey Flower es un webcómic fetichista en el que… Perdón, se me… No, espera, no se me han cruzado los papeles. Hailey Flower es un webcómic fetichista sobre mujeres tirándose pedos, un fetiche con una larga tradición en la historia de la humanidad que alcanza al célebre autor James Joyce y sus cartas románticas con su cónyuge. Antes de criticar Hailey Flower quiero decir que no tengo la más mínima intención de criticar un webcómic fetichista por ser fetichista. Primero, porque sería como ver a un hombre homosexual criticar una porno de Private porque sólo salen rubias en bolas y ya existe Bad Webcomics Wiki para eso. Segundo, porque sería hipócrita por mi parte decir que los fetiches de otra persona son intrínsecamente malos. Tercero, no quiero que la gente se torture por sus fantasías. Ahora, empecemos.
 
@@ -41,7 +41,7 @@ Sea como sea, el autor vive en un ciclo constante de querer explorar sus gustos 
 
 ------------------------------------------------------------------------
 
-**Haremos una peli** [](http://haremosunapeli.subcultura.es/)
+**Haremos una peli** [http://haremosunapeli.subcultura.es/](http://haremosunapeli.subcultura.es/)
 
 Quizás sea redundante explicar la premisa, pero también es necesario. Haremos una peli va sobre un grupo de amigos y estudiantes que harán una película. No va de cómo la hacen, importante diferencia. Todo empieza cuando a uno de ellos le regalan una cámara y aprovechando las vacaciones se apuntan a un concurso de cortos. A partir de ahí les vemos investigar y prepararse para rodar el corto, la pasión con la que lo hacen, cómo se divierten y se compenetran entre sí. Lo importante no es la meta, si no el viaje. Al final el corto lo juzgan como malo, pero no terrible, que es entretenido y que pueden mejorar. Y es lo que deciden hacer. Porque se han divertido y les ha gustado, y todavía pueden hacer muchos cortos y películas juntos. El propio cómic paraleliza el argumento. El tamaño de la letra cambia constantemente siendo a veces tan pequeña que cuesta leerla, los personajes se apilan unos sobre otros por falta de espacio, los bocadillos a veces se cruzan entre ellos y los personajes tienen una tendencia a hablar con la boca cerrada que les hace parecer ventrílocuos. Pero es agradable ver la naturalidad con la que se comportan como amigos y extraen lo positivo de la situación. Se nota que le ha puesto pasión haciéndolo.
 

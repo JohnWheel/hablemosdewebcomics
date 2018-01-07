@@ -11,7 +11,7 @@ Tres webcómics que por distintas causas tengo que leer de cero. Tres webcómics
 
 ------------------------------------------------------------------------
 
-**Cote Gotica** [](https://mega.nz/#!zNoFkRZS!VAQ1SOF2lzXWptM8PBbi2PkuyYg63BrjchYIGfZOe5o)
+**Cote Gotica** [https://mega.nz/#!zNoFkRZS!VAQ1SOF2lzXWptM8PBbi2PkuyYg63BrjchYIGfZOe5o](https://mega.nz/#!zNoFkRZS!VAQ1SOF2lzXWptM8PBbi2PkuyYg63BrjchYIGfZOe5o)
 
 Cote Gotica es un título tan emblemático de Subcultura y tan especial que no sé si seré capaz de hacerle justicia. Ya para empezar tengo que hacer una advertencia y es que no poseo el archivo completo del webcómic. Cote ha tenido una historia tan accidentada y ha sido borrado y retconeado tantas veces que no he sido capaz de seguirle el ritmo. Sin embargo tengo suficientes páginas en el enlace de descarga como para que nos hagamos una idea general de cómo era el proyecto. Así que empecemos, ¿y qué mejor que hacerlo que por el principio de los tiempos?
 
@@ -57,7 +57,7 @@ Y ahora así, se me acabaron las páginas de Cote Gotica, un webcómic que marc�
 
 ------------------------------------------------------------------------
 
-**Lola, la poligonera que mola** [](http://lolapoligonera.subcultura.es/) [](https://lolapoligonera.blogspot.com.es/)
+**Lola, la poligonera que mola** [http://lolapoligonera.subcultura.es/](http://lolapoligonera.subcultura.es/) [https://lolapoligonera.blogspot.com.es/](https://lolapoligonera.blogspot.com.es/)
 
 Lola es algo así como una versión de El Jueves de [Cherry](https://en.wikipedia.org/wiki/Cherry_(comics)), que si no conocéis los cómics underground de los 80, va de una chica no demasiado lista a la que le encanta el sexo y por una razón u otra se mete en líos alucinantes. En el caso de Lola el cómic está cubierto por una capa de sabor a España profunda, empezando por la protagonista. En lugar de ser una chica feliz y despreocupada, es una poligonera macarra, aprovechada y politoxicómana. Lo increíble es que a pesar de la premisa “chica que folla mucho y está dibujado todo en plan desagradable”, es bastante mejor de lo que me esperaba. Por ejemplo, siguiendo hablando de la protagonista, Lola es una guarra pero porque quiere y no se avergüenza, y folla con quien ella quiere y deja que le meta mano sólo quien le interesa. Por el otro, es un ser humano bastante terrible y desagradable y el cómic tampoco finge que está bien que sea una choriza o traicione a sus amigas. Unas veces ella queda mal por inculta, otras veces ella se aprovecha de los demás con su picardía, y otras se las ve con otros personas que son también para darles de comer a parte. Para la poca esperanza que da de primeras, está extrañamente bien equilibrada.
 
@@ -69,7 +69,7 @@ Y eso es todo. No es como para presumir de él pero los hay mucho, mucho peores.
 
 ------------------------------------------------------------------------
 
-**Pollito Wars** [](http://pollitowars.subcultura.es/)
+**Pollito Wars** [http://pollitowars.subcultura.es/](http://pollitowars.subcultura.es/)
 
 [Feadraug](http://subcultura.es/user/Feadraug/) me pidió que hablara de Pollito Wars porque no acaba de creerse que exista. La verdad, no le culpo.
 

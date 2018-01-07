@@ -3,7 +3,7 @@ layout: default
 title: Hablemos de Friendship is Magic
 ---
 
-**Friendship is Magic** [](https://mauroz.deviantart.com/gallery/41657649/MLP-FM)
+**Friendship is Magic** [https://mauroz.deviantart.com/gallery/41657649/MLP-FM](https://mauroz.deviantart.com/gallery/41657649/MLP-FM)
 
 Tal y como hice en las otras ocasiones, reservé un webcómic elegido por mí al que le tengo un cariño injustificable. Casualmente, Ameria pidió sin saberlo que hablara del título que ya había planeado. Eso le pasa por pedir webcómics de los que ya sabe lo que pienso. Dicha obra es Friendship is Magic de mauroz, un fan-cómic de My Little Pony: Friendship is Magic. Oh, boy, here we go.
 

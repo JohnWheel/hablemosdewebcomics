@@ -7,7 +7,7 @@ Aquí vuelvo con una ronda mucho más interesante. Son tres títulos variaditos 
 
 ------------------------------------------------------------------------
 
-**Dioses y otras tonterías** [](http://diosesyotrastonterias.subcultura.es/)
+**Dioses y otras tonterías** [http://diosesyotrastonterias.subcultura.es/](http://diosesyotrastonterias.subcultura.es/)
 
 Mi primero que me pregunto a la hora de escribir un artículo de Dioses y otras tonterías es si queda algo que decir del webcómic. Más aún cuando, sin que esto sirva de queja, tampoco hay tanto que decir. Son tiras humorísticas sencillas que siguen el esquema más clásico del mundo del webcómic: chistes de tetas y dominación mundial mientras combinan fantasía, ciencia ficción y referencias a Lovecraft con comedia de compañeros de piso. Es simple y es consciente de lo que quiere hacer, y con ello es efectivo. Cuando lo leo no dudo en absoluto de que zeentury está haciendo el webcómic que le gusta y se lo pasa bien con ello. Tras pasarnos años diciéndole a la cantera de autores que lo principal es hacer un cómic que te divierta va uno, nos hace caso y resulta que funciona. ¿Quién lo habría imaginado? Y quiero hacer un apunte rápido sobre esto de los gustos personales: se le nota que le gusta el femdom pero no deja que devore el guión de manera infame y le queda gracioso, que es algo que no puedo decir de otros webcómics de los que hablaré en el futuro.
 
@@ -17,7 +17,7 @@ Y eso es todo. Hay mamporros, chistes tontos y tetas. No es el mejor webcómic d
 
 ------------------------------------------------------------------------
 
-**DISTOPY: Jenny** [](http://distopyjenny.subcultura.es/)
+**DISTOPY: Jenny** [http://distopyjenny.subcultura.es/](http://distopyjenny.subcultura.es/)
 
 Hablar de este cómic me entristece por una cosa. Da igual cómo lo intente, no puedo transmitir con palabras su magia, las emociones que transmite cuando es leído. Su mera descripción no puede explicar el cómic, pues es una experiencia que debe ser vivida. Empezando por el título. Según la cabecera se trata de Dystopy, según el título de la web y la URL es DISTOPY: Jenny, según la portada es Distopy a secas. Pero distopía en inglés no es ni dystopy ni distopy, se dice dystopia. Va a ser uno de esos cómics, camaradas.
 
@@ -41,7 +41,7 @@ Y así es como se soluciona el Apocalipsis tecnológico y la extinción de la hu
 
 ------------------------------------------------------------------------
 
-**Don’t cry for me, I’m already dead** [](https://mega.nz/#!OJRmUIDD!hQocVJn5gTY4S8A2vun9gVXeDywmx8T4jh-8_AqsNCM)
+**Don’t cry for me, I’m already dead** [https://mega.nz/#!OJRmUIDD!hQocVJn5gTY4S8A2vun9gVXeDywmx8T4jh-8_AqsNCM](https://mega.nz/#!OJRmUIDD!hQocVJn5gTY4S8A2vun9gVXeDywmx8T4jh-8_AqsNCM)
 
 No sé si podemos considerar Don’t cry for me técnicamente un webcómic. No sé si fue publicado en Internet originalmente, pero sí que ha sido compartido por terceros con posterioridad. Y además es la hostia, así que qué más da. En el peor de los casos es una gran excusa para que conozcáis este cómic.
 

@@ -7,7 +7,7 @@ Con lo poco que falta para acabar con esta tanda de Hablemos de webcómics serí
 
 ------------------------------------------------------------------------
 
-**Slasher** [](http://slasher.subcultura.es/) [](https://tapas.io/series/Slasher-ESP)
+**Slasher** [http://slasher.subcultura.es/](http://slasher.subcultura.es/) [https://tapas.io/series/Slasher-ESP](https://tapas.io/series/Slasher-ESP)
 
 Slasher hace honor a su título y no es ni más ni menos que una película slasher, para lo bueno y para lo malo. Un grupo de universitarios cineastas se ven inmersos en una película de este tipo y para sobrevivir deciden que no van a cometer los errores y clichés propios de los protagonistas de los slashers. Esa es una premisa que ya empezó Scream en 1996, así que el cómic no podrá acogerse a la originalidad y va a depender del mérito técnico y de hacerlo muy bien para destacar. Y ese es un poco el problema que tengo con Slasher.
 
@@ -21,7 +21,7 @@ Por otro lado, cuando hablé de Silent Horror ya dije que tiendo a ser más exig
 
 ------------------------------------------------------------------------
 
-**Spinnerette** [](http://spinnyverse.com/)
+**Spinnerette** [http://spinnyverse.com/](http://spinnyverse.com/)
 
 Spinnerette es un webcómic de superhéroes, descripción que no llegaba a describir el webcómic por completo cuando empezó pero que hoy en día lo dice todo sobre él. Heather Brown es una ayudante de investigación en el laboratorio de su universidad y en las primeras diez páginas ya sufre el mismo accidente que Spiderman y gana poderes de arácnida. Esto es, tener seis brazos, ser proporcionalmente más fuerte y disparar telarañas por la rabadilla. Ni ser un OC de Spiderman ni seguir el proceso de aprendizaje de una superheroína novata rezuma originalidad, pero las cosas que se entrecruzan con su vida como trepa-muros sí son interesantes. Por ejemplo, su accidentada relación con su némesis Alexis Spinnerette, sus problemas para aceptar su homosexualidad o el clásico momento en el que tiene que decidir si es ético o no matar a una persona para salvar a otras. Lo malo es lo que viene después de eso.
 
@@ -33,7 +33,7 @@ Si tuviera que compararlo con algo sería con Fanhunter, que empezó como un hom
 
 ------------------------------------------------------------------------
 
-**Strays** [](http://www.straysonline.com/)
+**Strays** [http://www.straysonline.com/](http://www.straysonline.com/)
 
 Strays dura cuatrocientas páginas y no me acuerdo de nada, cosa casi inaudita. También es una señal muy mala. Con todo, me decidí a releerlo entero para poder comentarlo y me alegro de la decisión.
 

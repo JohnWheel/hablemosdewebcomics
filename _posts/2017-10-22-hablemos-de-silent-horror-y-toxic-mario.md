@@ -11,7 +11,7 @@ Esa persona es Fadri.
 
 ------------------------------------------------------------------------
 
-**Silent Horror** [](https://tapas.io/series/Silent-Horro)
+**Silent Horror** [https://tapas.io/series/Silent-Horro](https://tapas.io/series/Silent-Horro)
 
 El género de terror me fascina a pesar de que hable poco de él. Un efecto secundario de mi gusto por él es que tengo unas espectativas más altas que con otros géneros, por lo que tiendo a desconfiar bastante de la calidad de las obras de terror. Sin embargo cuando vi a DDoodler recomendar este webcómic le di de inmediato la oportunidad. Después de todo, DDoodler es un apasionado del terror que conoce bastante bien el mundillo. ¿Por qué no iba a confiar en él? ¿Cuál sería el resultado de la experiencia?
 
@@ -83,7 +83,7 @@ Que me cago en tu puta madre, DDoodler.
 
 ------------------------------------------------------------------------
 
-**Toxic Mario** [](https://toxic-mario.deviantart.com/gallery/32558218/MLP-Comics)
+**Toxic Mario** [https://toxic-mario.deviantart.com/gallery/32558218/MLP-Comics](https://toxic-mario.deviantart.com/gallery/32558218/MLP-Comics)
 
 Fan-cómics de My Little Pony los hay muchos tras el éxito del re-lanzamiento a manos de Lauren Faust. Los hay mejores, los hay peores, los hay pornográficos y los hay que son plagios de otros cómics. Luego están los cómics de Toxic Mario, un autor con tal carencia de talento artístico que no sería capaz de hacer un cómic si no es aprovechándose de una franquicia.
 

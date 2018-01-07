@@ -9,7 +9,7 @@ Y sin más preámbulos os dejo con la lista de webcómics que más me gustan y r
 
 ------------------------------------------------------------------------
 
-**The Last Mechanical Monster** [](https://lastmechanicalmonster.blogspot.com.es/)
+**The Last Mechanical Monster** [https://lastmechanicalmonster.blogspot.com.es/](https://lastmechanicalmonster.blogspot.com.es/)
 
 Este webcómic fue finalista a un Eisner y su autor, Brian Fies, ya ganó un premio Eisner y un premio Harvey por otros cómics en el pasado. Y tras leerlo no me extraña lo más mínimo. El uso preciso y exacto de los planos, enfoques, composiciones y contraluces es digno de estudio. Es capaz de representar el paso el tiempo tan sólo con las formas de las viñetas de una forma tan simple que es bella y elegante. Es un cómic que usaría para dar lecciones sobre cómo se hacen los cómics y qué tienen de especial como medio y como lenguaje. Pero como no creo que lo vayáis a leer sólo para presumir de que habéis leído un cómic muy bueno os hablaré un poco de la historia, que también está a la altura.
 
@@ -21,13 +21,13 @@ Dadle una oportunidad a Sparky. *I dream I’m young.*
 
 ------------------------------------------------------------------------
 
-**Kid Radd** [](http://tangent128.name/depot/kid_radd.zip) [](http://www.bgreco.net/kidradd/index.htm) [](http://kidradd.muddasheep.com/kidradd_guillaume/)
+**Kid Radd** [http://tangent128.name/depot/kid_radd.zip](http://tangent128.name/depot/kid_radd.zip) [http://www.bgreco.net/kidradd/index.htm](http://www.bgreco.net/kidradd/index.htm) [http://kidradd.muddasheep.com/kidradd_guillaume/](http://kidradd.muddasheep.com/kidradd_guillaume/)
 
 Ya lo describí como el que posiblemente sea el mejor webcómic que existe, así que era obvio que saldría aquí. Una mezcla de comedia y drama soberbia con una historia de magnitudes épicas que rompe con todos los patrones del cómic tradicional para explorar las posibilidades del webcómic. Y todo hecho en forma de un puñetero sprite-comic. Grandioso.
 
 ------------------------------------------------------------------------
 
-**Cucumber Quest** [](http://cucumber.gigidigi.com/)
+**Cucumber Quest** [http://cucumber.gigidigi.com/](http://cucumber.gigidigi.com/)
 
 Aventura de fantasía para todas las edades que a pesar de ser relativamente seria mantiene un tono humorístico constante y a ratos es capaz de montar las escenas más absurdas y estúpidas posibles. Además la autora sabe reírse de sí misma y mete un montón de chistes sobre anime.
 
@@ -35,13 +35,13 @@ La premisa es que unos niños furries se marchan de viaje por los reinos para co
 
 ------------------------------------------------------------------------
 
-**Camp Weedonwantcha** [](http://campcomic.com/)
+**Camp Weedonwantcha** [http://campcomic.com/](http://campcomic.com/)
 
 Uno de mis cómics de humor más favoritos. Va de un campamento de verano de estos que tienen los yanquis en los bosques para los niños, pero resulta que este campamento existe para dejar abandonados a los niños cuando sus padres ya no les quieren o no les aguantan (de ahí su nombre). Los niños, libres de obligaciones, se dedican a liarla por ahí con lo que encuentran, a hacer lo que les da la gana y a darse muchos golpes y pillar enfermedades. Es una risa y parte de su encanto deriva de cómo todas las coñas que hace son canon y persisten y son referenciadas en tiras posteriores. La otra parte del encanto reside en las ocasiones en las que a Katie y Adam les da por ponerse serios y hablan sobre el pasado de los niños antes de llegar al campamento.
 
 ------------------------------------------------------------------------
 
-**Strong Female Protagonist** [](http://strongfemaleprotagonist.com/)
+**Strong Female Protagonist** [http://strongfemaleprotagonist.com/](http://strongfemaleprotagonist.com/)
 
 Lo leí sin muchas esperanzas por tener un título tan así, pero resulta que es muy chulo y no va de decir “jur jur, qué guay es nuestra chica que es muy fuerte”. Esta es la historia de Alison Green, una de tantas personas de su generación que, sin saber por qué, desarrollaron superpoderes. En su caso ganó la habilidad de ser indestructible y tener fuerza como para levantar y lanzar un edificio ella sola. Sin embargo abandona la vida de vigilante cuando descubre que por mucho que pueda partirle la cara a los supervillanos, eso no va a mejorar el mundo. Los verdaderos problemas como la corrupción, la pobreza, el hambre o la desigualdad seguirán ahí y no puede hacer nada al respecto. Aunque sea invencible y el ser humano más fuerte que existe no es posible resolver los problemas fundamentales de la sociedad a puñetazos. Alison quiere salvar al mundo, quiere salvarlo de verdad. Aunque el mundo esté en su contra, a la gente le parezca mal lo que ella intenta hacer para mejorarlo y quieran impedírselo ella quiere ayudarles igual. Pero no puede.
 
@@ -51,13 +51,13 @@ El principio está dibujado un poco mal y el guión no es espectacular, pero va 
 
 ------------------------------------------------------------------------
 
-**Oglaf** [](http://oglaf.com/)
+**Oglaf** [http://oglaf.com/](http://oglaf.com/)
 
 Oglaf es un webcómic hecho entre un hombre y una mujer a los que les dio por hacer un cómic porno. Pero como les salía más de risa que de otra cosa, decidieron hacerlo de chistes de sexo y ya. Y son los mejores chistes de sexo que se pueden encontrar. Es complicado explicar el webcómic porque, salvo alguna saga puntual, todas las páginas son independientes unas de otras y porque la mayoría de los chistes no tienen gracia contados tal cual, hay que verlos. Como el del tío que se siente sexualmente atraído por cajas de madera. Es MUY gracioso, pero NO puedo transmitiros cómo de gracioso es. Siempre y cuando no os importe ver a gente desnuda y/o practicando sexo en todas las combinaciones posibles, dadle la oportunidad a Oglaf. Son los chistes de sexo más ingeniosos que hay y ni uno solo se basa en burlarse de la sexualidad de otras personas.
 
 ------------------------------------------------------------------------
 
-**Goblins** [](http://goblinscomic.org/)
+**Goblins** [http://goblinscomic.org/](http://goblinscomic.org/)
 
 Uno de los webcómics dramáticos y con historia continuada que más me ha gustado leer, aunque de un tiempo a esta parte me parece un poco peorcillo. No tengo claro si por un descenso de la calidad o por las actualizaciones erráticas e inconsistentes de los últimos años.
 
@@ -67,7 +67,7 @@ Si ya habéis leído Order of the Stick y queréis otro cómic similar con avent
 
 ------------------------------------------------------------------------
 
-**Order of the Stick** [](http://www.giantitp.com/comics/oots0001.html)
+**Order of the Stick** [http://www.giantitp.com/comics/oots0001.html](http://www.giantitp.com/comics/oots0001.html)
 
 Por supuesto Order of the Stick también aparece aquí. El proyecto empezó como chistes sueltos sobre Dungeons and Dragons hechos con monigotes, pero tras unas decenas de páginas Rich Burlew se vino arriba e inició una epopeya de proporciones épicas llena de emoción, drama y escenas increíbles con la que cualquier otra persona habría hecho una de esas sagas de fantasía épica de doce o quince libros. Rich, en cambio, sigue dibujando monigotes. Pero es de lo mejor que hay.
 
@@ -77,7 +77,7 @@ Si os gusta la fantasía miradlo. Ni siquiera hace falta saber cosas de rol para
 
 ------------------------------------------------------------------------
 
-**Angel Moxie** [](http://www.venisproductions.com/angelmoxie/index.php)
+**Angel Moxie** [http://www.venisproductions.com/angelmoxie/index.php](http://www.venisproductions.com/angelmoxie/index.php)
 
 Este webcómic me enganchó tanto que me lo leí de una sentada sin saber cuántas páginas tenía hasta acabarlo de madrugada. Ahora que los millenials no se duermen hasta las cinco de la madrugada porque están enganchados a Imgur y a Reddit no impresiona mucho, pero hacedme caso, fue algo especial. Angel Moxie va de magical girls con tono semi-paródico y realmente no hay mucho más que contar al respecto. No es una deconstrucción ni es un argumento nunca visto, son tres preadolescentes que se transforman en guerreras de la luz con vestidos monos y que se parten las caras con las fuerzas de la oscuridad. Lo que es es una historia de magical girls muy bien hecha y con muchos momentos de humor.
 
@@ -85,25 +85,25 @@ Una cosa que sí hay que mencionar a nivel técnico es que se hizo en los albore
 
 ------------------------------------------------------------------------
 
-**Ava’s Demon** [](http://www.avasdemon.com/)
+**Ava’s Demon** [http://www.avasdemon.com/](http://www.avasdemon.com/)
 
 Ya hablé bastante de Ava’s Demon en un artículo anterior de Hablemos de webcómics, y sigue siendo tan fantástico como entonces. Siendo breves, Ava es una niña en un orfanato que es acosada por un fantasma alienígena que a ratos la fuerza a tener ataques de rabia e insultar a la gente para meterla en problemas. Luego el planeta en el que reside es destruido por una invasión. Luego las cosas se complican. Sí, más. ¿Su misión? Asesinar al dios más poderosos del universo. Os dije que se complicaba más.
 
 ------------------------------------------------------------------------
 
-**Awesome Gamerz** [](http://awesomegamerz.com/)
+**Awesome Gamerz** [http://awesomegamerz.com/](http://awesomegamerz.com/)
 
 Este webcómic viene de la mano del autor de Purple Pussy, y eso se nota. Awesome Gamerz es una parodia bestia y sin tapujos de los webcómics de videojuegos. Protagonistas homófobos y desagradecidos, asesinatos, drogas, profanación de cadáveres y pederastia son algunas de las cosas que desfilan por sus páginas en nombre de la risa y de la burla del género de los webcómics de videojuegos. Lo más increíble es que a pesar de tener ya quince años no ha envejecido nada, y si acaso es todavía más relevante. Es un webcómic con mucha sal gorda y lo adoro por ello.
 
 ------------------------------------------------------------------------
 
-**Brawl in the Family** [](http://brawlinthefamily.keenspot.com/)
+**Brawl in the Family** [http://brawlinthefamily.keenspot.com/](http://brawlinthefamily.keenspot.com/)
 
 La cara opuesta de Awesome Gamerz. Una obra dulce y cándida propia de la magia de Nintendo que empieza con chistes bastante tontos de Kirby tragándose cosas. Pero en lugar de volverse repetitivo expande sus horizontes, crece y mejora. Ya destaqué ejemplos en el artículo que le dediqué en anteriores entregas de Hablemos de webcómics, pero cabe repetir que Matthew se convierte en un autor de cómics tan maduro que parece mentira que las chapuzas de las primeras páginas sean suyas. Es tan chulo que hasta me compré los recopilatorios. He pagado por un webcómic que se lee gratis, así de bueno es.
 
 ------------------------------------------------------------------------
 
-**LovePap Comics** [](http://lovepap.com/)
+**LovePap Comics** [http://lovepap.com/](http://lovepap.com/)
 
 Me quejé mucho de los cómics eróticos y pornográficos cuando hablé de Hot Doc en un artículo anterior de Hablemos de webcómics, y Lira tenía razón en quejarse de que los ejemplos que puse pertenecían todos a una misma corriente con un público objetivo concreto. ¿Así que por qué no aprovechar la ocasión para compartir algunos webcómics cochinos con estilos más diversos? LovePap Comics se toma en serio el objetivo de hacer porno sobre gente variada y todas las historias están protagonizadas por personas de identidad sexual no normativa. Lo cual es lógico teniendo en cuenta que una de las autoras es transexual y la otra… la otra es complicada y prefiero no decir nada antes que equivocarme. Hasta ahora hay lesbianas, una chica con pene que es para abrazarla cual peluche de lo mona que es, unos chicos travestis que son todo lo cuco, unos bichos ¿que no son furries pero como si lo fueran? ¿Los animales inventados cuentan como furry? ¿O son alienígenas? ¿Podemos dejarlo así y pasar al siguiente? y, ¿gente de helado? Mejor sigo hablando de qué tal es el cómic.
 
@@ -113,7 +113,7 @@ Lo malo es que el proyecto está parado sin fecha de regreso. La dibujante de mo
 
 ------------------------------------------------------------------------
 
-**Alfie** [](http://buttsmithy.com/)
+**Alfie** [http://buttsmithy.com/](http://buttsmithy.com/)
 
 Otro cómic porno. Todavía no lo he leído entero, pero lo que he visto me ha encantado. Cumple todas y cada una de las cosas de las que hablé sobre lo que distingue a gente desnuda protagonizando sexo aburrido y un buen cómic porno. InCase se toma las escenas de sexo con la misma seriedad que las escenas “normales” (¿a alguien más le parece raro dividir el arte en normal y en porno? ¿No? ¿Sólo a mí? Qué más da.) deleitándose en ellas y desgranándolas con paciencia. Haciendo fluir los movimientos y a los personajes, eligiendo con cuidado las composiciones y la maquetación. Tampoco penséis que estoy hablando de una gafapastada que intenta no parecer porno porque al parecer el porno no cuenta como arte de verdad. Es sexo sucio. Muy sucio. Y es genial.
 
@@ -125,7 +125,7 @@ A menos que no os guste en absoluto el sexo guarro o el BDSM, o que no os guste 
 
 ------------------------------------------------------------------------
 
-**The Rock Cocks** [](http://rockcocks.slipshine.net/)
+**The Rock Cocks** [http://rockcocks.slipshine.net/](http://rockcocks.slipshine.net/)
 
 Último webcómic cochino antes de volver a hablar de los “”“normales”“” (No, en serio, ¿quizás esta separación entre ser porno o ser normal sea parcialmente responsable de la absurda sexualización insertada con calzador en cómics, libros, películas o videojuegos que no son de intención erótica ni tienen necesariamente por objetivo a un público adulto? Porque os voy a decir una- vale, ya me callo). The Rock Cocks empezó casi a modo de prueba como un cómic de Slipshine antes de convertirse en un webcómic, y la verdad es que se nota. Parte del argumento va de tratar el sexo como algo normal y natural en lugar de como algo oscuro y perverso y los autores incorporan a gente homosexual o transexual al reparto y a las escenas sexuales sin que ningún otro personaje se extrañe de nada. Simplemente aparecen porque son personas normales, y a las personas les suele gustar el sexo, y ya está. No tiene más complicaciones.
 
@@ -137,7 +137,7 @@ Una nota extra porque esto puede ser bastante confuso si tenéis cuenta de Slips
 
 ------------------------------------------------------------------------
 
-**Erma** [](https://tapas.io/series/Erma)
+**Erma** [https://tapas.io/series/Erma](https://tapas.io/series/Erma)
 
 Erma es el tipo de webcómic que te jode mucho que no se te ocurriera primero. Va de una niña fantasma en plan Sadako de The Ring que va a la escuela y hace cosas de niña normal. Pero siendo un fantasma con poderes de poltergeist y eso. El cómic es genial, la protagonista es adorable y el cómic antes de volverse cansado y repetitivo se abre a otras vías. Empieza a hablar más de la gente que rodea a Erma, de otros fenómenos paranormales que existen en dicho mundo y a lo tonto el autor se atreve con pequeños arcos argumentales algo más serios. No tengo mucho más que decir porque al fin y al cabo la mayor parte del tiempo se mantiene fiel a ser una tira cómica sencilla, pero tiene mi sello de aprobación. Valga lo que valga eso.
 
@@ -145,7 +145,7 @@ Ah, y el director del colegio es Morgan Freeman.
 
 ------------------------------------------------------------------------
 
-**Ruby Quest** [](https://1d4chan.org/wiki/Quest:Ruby_Quest) [](http://evilcorporation.com.br/rubyquest/)
+**Ruby Quest** [https://1d4chan.org/wiki/Quest:Ruby_Quest](https://1d4chan.org/wiki/Quest:Ruby_Quest) [http://evilcorporation.com.br/rubyquest/](http://evilcorporation.com.br/rubyquest/)
 
 Ruby Quest es uno de mis webcómics favoritos y uno de los más molones e intensos. Sólo puede existir como webcómic y desafía tanto sus límites que casi ni es un webcómic. De hecho es una vieja partida de rol en la sección de juegos de mesa de 4chan. El autor empezó con una coneja encerrada en una caja y dibujada malamente a Paint, esperó a que el público decidiera qué hacer, dibujó la siguiente viñeta con el resultado de las acciones y repitió el proceso. Así hasta que acabaron la campaña. Hay multitud de copias y espejos del cómic original flotando por Internet que tratan de hacer más fácil la lectura, aunque mi forma favorita de leerlo es con los hilos originales completos para leer las pesquisas y deducciones que hacen los jugadores sobre los puzzles, el argumento de la partida y lo que está sucediendo. Pero elegid la que más os guste.
 
@@ -153,13 +153,13 @@ Sólo daré tres consejos que comprenderéis luego: nos dejéis engañar por el 
 
 ------------------------------------------------------------------------
 
-**JL8** [](http://limbero.org/jl8/260)
+**JL8** [http://limbero.org/jl8/260](http://limbero.org/jl8/260)
 
 ¿Qué mas voy a decir que no dijera la primera vez en Hablemos de webcómics? Un webcómic sobre DC en forma de niños con una ejecución prácticamente perfecta. Me sigue gustando a pesar de las cagadas del autor acosando a mujeres. Al fin y al cabo también me sigue encantando la parte que no es de machista de Cerebus aunque Dave Sim sea la misoginia personificada.
 
 ------------------------------------------------------------------------
 
-**Sleepless Domain** [](http://www.sleeplessdomain.com/)
+**Sleepless Domain** [http://www.sleeplessdomain.com/](http://www.sleeplessdomain.com/)
 
 Si tuviera que recomendaros un único webcómic de toda la lista sería este. Es una historia de magical girls y sería el mejor magic shoujo que hay si no existiera ya Princess Tutu. Va de que las magical girl son un suceso común y tienen la posibilidad de registrarse como vigilantes para proteger la ciudad durante la noche del ataque de monstruos. A cambio pueden matricularse en academias de postín exclusivas para ellas, y si son lo bastante célebres, firmar acuerdos comerciales para vender su imagen y ganar dinero. Y luego pasan cosas. Cosas que no puedo contar porque lo estropearía todo, pero son cosas que molan mogollón e incluyen a tías matando monstruos gigantes a puñetazos.
 
@@ -173,7 +173,7 @@ Leed Sleepless Domain. Sleepless Domain es buena mierda. Es muy buena mierda.
 
 ------------------------------------------------------------------------
 
-**Lady of the Shard** [](https://gigidigi.itch.io/lady)
+**Lady of the Shard** [https://gigidigi.itch.io/lady](https://gigidigi.itch.io/lady)
 
 Lady of the Shard es bueno. Muy bueno. Y encima es de la autora de Cucumber Quest. Aunque quizás algo difícil de recomendar si no se está dispuesto a leer webcómics más experimentales. Es uno de esos webcómics que sólo tienen sentido leídos en un ordenador, y además deben ser leídos de una forma concreta. Está dibujado con píxel art puro y apenas una decena de colores como si se hubiera hecho en un ordenador de los ochenta. Y sólo dibuja los brillos de la luz que inciden sobre los objetos y personajes, dejando que se fundan con el fondo monocromo de la web. Por eso la autora recomienda pulsar F11 para poner el navegador en modo pantalla completa y dejar que su micro cosmos te absorba por completo. Yo secundo su recomendación.
 
@@ -183,7 +183,7 @@ Es un cuento breve y de ensueño, casi como los de un cuento ilustrado infantil.
 
 ------------------------------------------------------------------------
 
-**Homestuck** [](http://www.mspaintadventures.com/?s=6)
+**Homestuck** [http://www.mspaintadventures.com/?s=6](http://www.mspaintadventures.com/?s=6)
 
 ¿Cómo no iba a poner Homestuck? Déjame que te hable de Homestuck. Suponiendo que quede alguien que no lo conozca, claro. Es una subversión de los webcómics y los videojuegos que fusiona ambos medios y eso forma parte de la propia trama. Andrew Hussie posiblemente sea la única persona capaz de hacer funcionar un webcómic en el que el 95% de las páginas consisten en una viñeta razonablemente grande acompañada de un texto de 1.500 palabras. Una cosa que hace a Homestuck genial y a Romantically Apocalyptic todavía peor de lo que ya era (y ya es decir). ¿Cómo puedo condensar siete mil páginas de webcómic experimental con una historia que se extiende a lo largo de varios universos, y que empezaba con un pobre chaval intentando llegar al buzón de su casa? Pues de esta manera:
 
@@ -193,7 +193,7 @@ Sólo por eso ya deberíais leerlo.
 
 ------------------------------------------------------------------------
 
-**Rickety Stitch** [](https://ricketystitch.com/)
+**Rickety Stitch** [https://ricketystitch.com/](https://ricketystitch.com/)
 
 Este es un caso raro de fantasía épica en el que no va de héroes y elegidos por el destino para salvar el mundo. Rickety Stitch es un esqueleto un poco desastre al que lo que le gusta es cantar y hace el vago en el trabajo. Así que le acaban despidiendo a él y al cubo gelatinoso del que es amigo. Vagan por el mundo sin tener ningún lugar en el que encajar y se meten en líos con un antiguo gigante atrapado en el castillo de un reino olvidado. La historia está muy bien construida y es capaz de mostrar que los protagonistas viven en un mundo complejo y gigantesco sin atosigarte con exposición a lo Tolkien o imitador de Tolkien. Aunque publicaban textos extras opcionales para quien quisiera saber más sobre la naturaleza e historia de dicho mundo.
 
@@ -201,7 +201,7 @@ Tristemente, no sé cuando, retiraron todo el material de la web y ahora sólo e
 
 ------------------------------------------------------------------------
 
-**Wormworld Saga** [](https://wormworldsaga.com/)
+**Wormworld Saga** [https://wormworldsaga.com/](https://wormworldsaga.com/)
 
 Otro webcómic de fantasía bastante conocido, famoso por publicar los capítulos enteros como una sola página aprovechando el lienzo infinito. El trabajo que le dedica a crear cada viñeta es impresionante. En ningún momento hace trampas ni toma atajos, y si hace falta dibujar junglas o ciudades completas con cientos de personas viñeta tras viñeta, los dibuja. No sé de dónde saca la paciencia y la disciplina para semejante tarea, pero lo hace. Aunque claro está, entre página y página pasan meses.
 
@@ -209,13 +209,13 @@ La historia se parece bastante a los típicos relatos de fantasía protagonizado
 
 ------------------------------------------------------------------------
 
-**The Onion** [](https://www.theonion.com/c/editorial-cartoon)
+**The Onion** [https://www.theonion.com/c/editorial-cartoon](https://www.theonion.com/c/editorial-cartoon)
 
 Las viñetas políticas de The Onion están escritas y dibujadas por un carroza conservador, divorciado y engreído que odia la tecnología, los jóvenes, las mujeres y en general todo lo que haya ocurrido tras los años 50 en EEUU. Excepto que en realidad el autor está siendo sarcástico y finge ser esa persona que a su vez está siendo sarcástica. La cantidad de capas de abstracción, de ironía y de parodia condensadas es deliciosa, y cada detalle y cada coña una pequeña gema. Son unas viñetas de humor político imprescindibles, y ni siquiera son de verdad.
 
 ------------------------------------------------------------------------
 
-**Awkward Zombie** [](http://www.awkwardzombie.com/)
+**Awkward Zombie** [http://www.awkwardzombie.com/](http://www.awkwardzombie.com/)
 
 Ya que hay poquísimos webcómics de videojuegos que sean buenos lo mejor es que los compartamos, y Awkward Zombie es uno de ellos. Su mérito reside en el esfuerzo de Katie por no hacer chistes que ya hayan repetido ya el resto de su calaña y en su habilidad para ser hilarante con muy poco. Pocas veces se ve un timing tan cuidado y tan medido en tiras sueltas de chistes chorras. El lado malo es que en ocasiones el chiste puede resultar incomprensible si no conoces el videojuego en cuestión. Por el otro lado, es el webcómic donde apareció lo de *Eat your hamburguers, Apollo*. Ya sólo por eso vale la pena todo.
 

@@ -7,7 +7,7 @@ En esta ocasión vuelvo a hablar bastante bien de los títulos que habéis elegi
 
 ------------------------------------------------------------------------
 
-**Atomic Laundromat** [](http://www.atomiclaundromat.com/)
+**Atomic Laundromat** [http://www.atomiclaundromat.com/](http://www.atomiclaundromat.com/)
 
 La superlavandería es una serie de tiras cómicas de Armando Valenzuela que se remonta nada menos que al 2009. El cómic sigue las peripecias diarias de David, único miembro sin superpoderes en su familia, que regenta una lavandería especializada en héroes y villanos.
 
@@ -17,7 +17,7 @@ No es una obra imprescindible que marca un antes y un después, o del que se pue
 
 ------------------------------------------------------------------------
 
-**Brawl in the Family** [](http://brawlinthefamily.keenspot.com/)
+**Brawl in the Family** [http://brawlinthefamily.keenspot.com/](http://brawlinthefamily.keenspot.com/)
 
 VGCats, Awkward Zombie, Kid Radd, Nerd Rage, Gamer Cat.
 
@@ -37,7 +37,7 @@ Dadle un tiento, que está terminado y las seiscientas páginas dan para unas cu
 
 ------------------------------------------------------------------------
 
-**Dragon Mail** [](http://dragonmail.fadri.org/)
+**Dragon Mail** [http://dragonmail.fadri.org/](http://dragonmail.fadri.org/)
 
 ¿Cómo voy a hablar mal del webcómic de una de las personas con las que hago cacas mano a mano en [CNAUW](http://cnauw.subcultura.es/)? ¿De uno de los autores de Las Crónicas de Matilda, que no me gustó nada? ¿Acaso no nos preocupa la ética en la prensa de los webcómics? No me quedará más remedio que soltar chistes en lugar de explicar qué tal está.
 

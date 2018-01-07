@@ -7,7 +7,7 @@ title: Hablemos de El Goonish Shive, En Crisis y Klotilde & Koimalin
 
 ------------------------------------------------------------------------
 
-**El Goonish Shive** [](http://www.egscomics.com/)
+**El Goonish Shive** [http://www.egscomics.com/](http://www.egscomics.com/)
 
 El Goonish Shive es un webcómic fanfiquero en el que… Perdón, se me han cruzado los papeles otra vez. El Goonish Shive es un webcómic fetichista en el que el reparto coral se enfrenta a aventuras sobrenaturales que mezclan la fantasía con la ciencia ficción así como las dificultades diarias propias de un grupo de adolescentes. Lo mismo desarticulan un grupo terrorista formado por híbridos artificiales de humanos y animales que lidian con la tensión emocional de resolver asuntos pendientes con la ex que traicionó la confianza de su novio contándole a todo el instituto que este era homosexual. Pero antes de hablar de qué opino de El Goonish Shive es mejor que exponga y aclare una serie de cosas, ya que lleva *más de quince años* en activo.
 
@@ -41,7 +41,7 @@ Ah, y también tiene [un tumblr separado para colgar dibujos cochinos de sus per
 
 ------------------------------------------------------------------------
 
-**En Crisis** [](http://encrisis.subcultura.es/)
+**En Crisis** [http://encrisis.subcultura.es/](http://encrisis.subcultura.es/)
 
 En Crisis comienza con Saúl declarándose a su amiga Jessi en la segunda página, presentándonos a su amigo Álex el travieso, a Nuria la periodista y al irascible director Camilo. Saúl ha sacado una nota perfecta en un examen y por tanto será trasladado a un instituto especial para superdotados.
 
@@ -55,7 +55,7 @@ Eso sí, una cosa que merece mención especial son los nombres. Saúl Silver San
 
 ------------------------------------------------------------------------
 
-**Klotilde & Koimalin** [](http://klotilde-koimalin.subcultura.es/)
+**Klotilde & Koimalin** [http://klotilde-koimalin.subcultura.es/](http://klotilde-koimalin.subcultura.es/)
 
 Klotilde & Koimalin narra las anécdotas diarias de la autora universitaria protagonizándolas por una representación de la susodicha y un cactus. Sorprendentemente, este no es el único webcómic que conozco con esta descripción. El archivo se puede dividir en dos partes. La primera trata sobre un viaje en autobús, lo cuál es exactamente tan interesante como imaginas. A pesar de las dificultades logra alargarlo durante once páginas y alcanza su mejor momento cuando dibuja algo parecido a una paloma haciendo algo parecido a caminar.
 

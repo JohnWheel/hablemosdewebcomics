@@ -7,7 +7,7 @@ Aquí traigo la nueva entrega de Hablemos de webcómics, que prometí que sería
 
 ------------------------------------------------------------------------
 
-**El sistema D13** [](http://www.elsistemad13.com/)
+**El sistema D13** [http://www.elsistemad13.com/](http://www.elsistemad13.com/)
 
 Este es un webcómic que me gusta tan poco que [Kalitro](http://subcultura.es/user/Kalitro), cuando conoció al autor al verle con mala cara, me acusó de estar haciéndole vudú. Para exponer los problemas que le encuentro al cómic, antes que explicar de qué va o cómo es, describiré a sus personajes si no es molestia.
 
@@ -47,7 +47,7 @@ Cuando un cómic rebasa la marca de las mil tiras el público se suele preguntar
 
 ------------------------------------------------------------------------
 
-**zerocomic** [](http://zerocomic.subcultura.es/)
+**zerocomic** [http://zerocomic.subcultura.es/](http://zerocomic.subcultura.es/)
 
 No sé qué decir de este cómic que no haya dicho ya [Feadraug](http://subcultura.es/user/Feadraug) en sus numerosas críticas. Para empezar digamos que el cómic [empieza más o menos de esta manera](http://zerocomic.subcultura.es/tira/34) y [acaba más o menos así](http://zerocomic.subcultura.es/tira/1978/). Sí, en ambas páginas sale la misma chica. No, no hay mucho que explicar sobre eso salvo lo que ya se ve. No, lo de los chistes sobre tíos y tías es en realidad una coincidencia. Los chistes, que son todos auto-conclusivos, siguen un patrón similar a este:
 
@@ -67,7 +67,7 @@ Esto es todo lo que se me ocurre decir, y la mitad ni es sobre el propio webcóm
 
 ------------------------------------------------------------------------
 
-**Bored Girl** [](http://boredgirlwebcomic.subcultura.es/)
+**Bored Girl** [http://boredgirlwebcomic.subcultura.es/](http://boredgirlwebcomic.subcultura.es/)
 
 Bored Girl. Mil tiras exactas y aproximadamente seis chistes. No me refiero a que haya seis chistes en total, si no que son los mismos seis chistes repetidos en bucle hasta que cerró el webcómic. Bonnie es arisca y quiere estar sola, mientras que Miki es alegre hasta el paroxismo y se emperra en convertir a Bonnie en su amiga. Miki se lleva a Bonnie a alguna fiesta en contra de su voluntad, vuelven, Bonnie suspende un examen, Bonnie juega en un FPS multijugador, Miki se lleva a Bonnie de viaje, Miki tiene un acceso violento en el que mata gente, regresan, a Bonnie la visita su abuela y vuelve a aparecer una fiesta reiniciando el ciclo. No voy a entrar en si son buenos chistes o no, porque cuando son repetidos entre cien y ciento cincuenta veces da bastante igual si eran divertidos o no. Si no fuera porque están numeradas, sería imposible reconocer de qué fecha es cada página leyéndolas al azar.
 

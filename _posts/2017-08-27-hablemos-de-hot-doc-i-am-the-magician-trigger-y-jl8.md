@@ -7,7 +7,7 @@ Buf, cuanto tiempo sin hablar de webcómics. Pero miremos el lado bueno, la tand
 
 ------------------------------------------------------------------------
 
-**Hot Doc** [](http://hotdoc.subcultura.es/)
+**Hot Doc** [http://hotdoc.subcultura.es/](http://hotdoc.subcultura.es/)
 
 Hot Doc, la obra pornográfica de los autores de [¡Ja!](http://jaja.subcultura.es/) que tomó Subcultura como un huracán. No todos los días me pedís que hable de una de nuestras celebridades locales, así que agradezco dicha oportunidad y espero que la disfrutéis tanto como yo mientras descubrimos qué tiene de bueno Hot Doc.
 
@@ -35,7 +35,7 @@ Ah, nos olvidábamos de una cosa. ¿Cómo acaba Hot Doc? Pues tras cagarla e inv
 
 ------------------------------------------------------------------------
 
-**I am the MAGICIAN TRIGGER !!** [](http://magiciantrigger.subcultura.es/)
+**I am the MAGICIAN TRIGGER !!** [http://magiciantrigger.subcultura.es/](http://magiciantrigger.subcultura.es/)
 
 [susurro](http://subcultura.es/user/susurro/) pidió hace ya un año una reseña de I am the MAGICIAN TRIGGER !! porque llevaba mucho tiempo dudando si leerlo o no. Bueno, susurro, parece que al fin vas a salir de dudas.
 
@@ -53,7 +53,7 @@ Bueno, susurro, confío en que la espera haya valido la pena y esto te sirva par
 
 ------------------------------------------------------------------------
 
-**JL8** [](http://limbero.org/jl8/)
+**JL8** [http://limbero.org/jl8/](http://limbero.org/jl8/)
 
 Lo que comienza como unas tiras simpáticas sobre los personajes de DC teniendo ocho años y yendo al colegio se convierte en uno de mis webcómics favoritos. El inicio es sencillo, con tiras básicas de periódico haciendo gags con el hecho de que son superhéroes y unos críos. Poquito a poco le va metiendo el síndrome Cerebus y las tiras ganan más continuidad formando arcos argumentales donde desarrolla y explota a los personajes, y ahí es donde reluce. Página tras página mejora en narrativa y en guión. Las últimas decenas de páginas se podrían usar para dar clases sobre el lenguaje de los cómics de tanto que sube el nivel. De verdad, es alucinante, y este ejemplo ni es de los mejores que tiene.
 

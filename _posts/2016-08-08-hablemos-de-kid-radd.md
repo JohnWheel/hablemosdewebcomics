@@ -21,9 +21,9 @@ Y es que el autor no se paró ahí. Utilizó cada truco que encontraba al alcanc
 
 Busques una historia emocionante, una trama profunda y desarrollada o una obra innovadora y vanguardista, en Kid Radd encontrarás un gran webcómic. Posiblemente el mejor webcómic que hay hasta el momento. Desgraciadamente, la web original no existe y el avance de los navegadores hizo ilegible el cómic. Afortunadamente, una serie de fans leales han subido copias del webcómic y le han hecho correcciones para que siga disponible esperando a nuevos lectores:
 
--   [](http://tangent128.name/depot/kid_radd.zip)
--   [](http://www.bgreco.net/kidradd/index.htm)
--   [](http://kidradd.muddasheep.com/kidradd_guillaume/)
+-   [http://tangent128.name/depot/kid_radd.zip](http://tangent128.name/depot/kid_radd.zip)
+-   [http://www.bgreco.net/kidradd/index.htm](http://www.bgreco.net/kidradd/index.htm)
+-   [http://kidradd.muddasheep.com/kidradd_guillaume/](http://kidradd.muddasheep.com/kidradd_guillaume/)
 
 A pesar de que el webcómic es una referencia completa a los videojuegos y hace homenajes con frecuencia, no es necesario un conocimiento enciclopédico. Los guiños saben mantenerse apartados sin estorbar la claridad y con haber cogido un mando de forma ocasional en los últimos treinta años deberías sentirte como en casa. Si no te gustan los videojuegos es posible que no le veas la gracia, en cambio.
 

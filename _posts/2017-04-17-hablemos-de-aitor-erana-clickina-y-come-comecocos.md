@@ -7,7 +7,7 @@ Esta entrega de Hablemos de se me ha atragantado durante bastante tiempo y ni si
 
 ------------------------------------------------------------------------
 
-**Aitor Eraña** [](http://terminaitor.deviantart.com/)
+**Aitor Eraña** [http://terminaitor.deviantart.com/](http://terminaitor.deviantart.com/)
 
 ¿Qué más puedo contar de Aitor, el autor de Freaks cuyo recopilatorio ya está en tiendas y se compone de más de cien páginas redibujadas y un puñado de páginas extra exclusivas por apenas diez pavos? Pues que además de Freaks, me guardé los cómics que subió a su galería de deviantArt hace años y años. Tal es el viaje en el tiempo que podemos ver cómo Aitor se transforma de un hombre rubio, delgado y con pelo en uno moreno, calvo y más gordete.
 
@@ -17,7 +17,7 @@ Y no sé qué seguir diciendo de este hombre, de verdad.
 
 ------------------------------------------------------------------------
 
-**Clickina** [](https://mega.nz/#!mZg3nTCR!KMknzfHzMrzvn6N--DXjvN2dITXf5aZWiXB-7lN9Rv0)
+**Clickina** [https://mega.nz/#!mZg3nTCR!KMknzfHzMrzvn6N--DXjvN2dITXf5aZWiXB-7lN9Rv0](https://mega.nz/#!mZg3nTCR!KMknzfHzMrzvn6N--DXjvN2dITXf5aZWiXB-7lN9Rv0)
 
 Cómo pasa el tiempo. En la época del WEE, hará diez años atrás, Runtime y sus tiras eran famosillos dentro del círculo de habla hispana y logró fabricar su propia comunidad. Hoy en día sus webs ni siquiera existen. Si tuviera que describirle a las nuevas generaciones diría que Runtime fue quien trajo el clickbait a España.
 
@@ -53,7 +53,7 @@ Y eso es Clickina. Algunas tiras tienen su parte de razón, otras son discutible
 
 ------------------------------------------------------------------------
 
-**Come ComeCocos** [](https://mega.nz/#!7E4E3YRK!qoYUQVMGwzISaNX4osyHVQfx8Hk4sEkmjxugb2ok-i8)
+**Come ComeCocos** [https://mega.nz/#!7E4E3YRK!qoYUQVMGwzISaNX4osyHVQfx8Hk4sEkmjxugb2ok-i8](https://mega.nz/#!7E4E3YRK!qoYUQVMGwzISaNX4osyHVQfx8Hk4sEkmjxugb2ok-i8)
 
 Seguimos con otro cómic venido de la época de abundancia del WEE. Nació hace casi diez años y es un auténtico “mi primer webcómic” de manual. Referencias al WEE, tiras sin mucho sentido, la protagonista es la autora, mete a amigos y cuenta chistes de sus anécdotas. Lo único que falta es un Cthulhu. He hablado tantas veces de este tipo de webcómics que no tengo más que decir, así que dejo unas cuantas tiras de ejemplo. En una hace un chiste de matemáticas, en otra sale Iker Jimenez y las otras no sé ni cómo explicarlas.
 

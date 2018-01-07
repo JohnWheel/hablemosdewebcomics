@@ -3,7 +3,7 @@ layout: default
 title: Hablemos de Amdeni, Las Paridsa de la Guarida y Las crónicas de Matilda
 ---
 
-**Amdeni** [](https://mega.nz/#!TUJDWZ6T!aEZ9z1Oqv7Cu4bJSkgOcG7NxuxYB6dYMduFIVmcfuvM)
+**Amdeni** [https://mega.nz/#!TUJDWZ6T!aEZ9z1Oqv7Cu4bJSkgOcG7NxuxYB6dYMduFIVmcfuvM](https://mega.nz/#!TUJDWZ6T!aEZ9z1Oqv7Cu4bJSkgOcG7NxuxYB6dYMduFIVmcfuvM)
 
 Amdeni es la trágica historia de amor obra del co-autor original de Cote Gótica, un clásico dónde los haya en Subcultura. La protagonista es una niña llamada Elinné Ardish Reebó. Creo. Aunque el problema no radica en lo colorido y exótico de su nombre, es que veréis, las casi doscientas páginas del cómic se leen así:
 
@@ -31,7 +31,7 @@ Y esa es la historia de Amdeni, un cómic sobre drama, niñas, drama, galletitas
 
 ------------------------------------------------------------------------
 
-**Las Paridas de la Guarida** [](http://lpdlg.subcultura.es/)
+**Las Paridas de la Guarida** [http://lpdlg.subcultura.es/](http://lpdlg.subcultura.es/)
 
 Las Paridas de la Guarida es un webcómic fetichista en el que… Perdón, se me han cruzado los papeles. Las Paridas de la Guarida es un webcómic fanfiquero en el que se cruzan todos los universos de cualquier cosa que le interese al autor, sea Mortal Kombat, Sailor Moon, Marvel, Touhou y, con cierta frecuencia, webcómics españoles. De hecho parte de sus personajes pertenecen a un fanfic de Megaman que hizo tiempo antes del webcómic. Eso no es necesariamente malo. Porque a ver, entre otras cosas vemos a Sailor Mars exorcizando un retrete en el que se ha colado un horror lovecraftiano. O al señor Pérez sufriendo una comunidad de vecinos en la que el presidente es Shao Khan. Tiene gracia lo mires por donde lo mires. No se aleja tanto de la fórmula con la que lo peta Manly Guys Doing Manly Things.
 
@@ -45,7 +45,7 @@ Además Patroklo hace un cameo en Las Paridas de la Guarida robándole ropa usad
 
 ------------------------------------------------------------------------
 
-**Las crónicas de Matilda** [](http://matilda.subcultura.es/)
+**Las crónicas de Matilda** [http://matilda.subcultura.es/](http://matilda.subcultura.es/)
 
 Fanzine nominado a mejor webcómic en el Expocomic 2013 y finalmente convertido en webcómic, dibujado y escrito mano a mano entre Defriki, Zelgadis y Fadri.
 

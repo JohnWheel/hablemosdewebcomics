@@ -3,7 +3,7 @@ layout: default
 title: Hablemos de Cosmos & Waterfall
 ---
 
-**Cosmos & Waterfall** [](http://cosmos-y-waterfall.subcultura.es/)
+**Cosmos & Waterfall** [http://cosmos-y-waterfall.subcultura.es/](http://cosmos-y-waterfall.subcultura.es/)
 
 Descubrí Cosmos & Waterfall cuando, de improviso, Fadri me lo enlazó tras saludarle. Admitiré que mi primera reacción fue templada.
 
